@@ -1,4 +1,4 @@
-# Terminvorschau
+# Termine
 
 ## Themenabende
 
