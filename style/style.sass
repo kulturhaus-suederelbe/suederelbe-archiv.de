@@ -1,0 +1,94 @@
+---
+---
+
+*
+  box-sizing: border-box
+
+$nav: 12em
+$body: 60em
+$dark: #067d98
+$bright: #75bdcb
+$grey: #b0b0b0
+$device-break: 50em
+
+img
+  width: 100%
+
+body
+  font-family: Verdana, sans-serif
+  max-width: $body
+  margin: 0
+  background-color: #067d98
+  background-image: linear-gradient($dark, $bright, $bright)
+
+header
+  background-color: $grey
+  p
+    @media screen and (max-width: $device-break)
+      text-align: center
+    @media screen and (min-width: $device-break)
+      text-align: right
+    color: white
+    padding: 0 1em 0.25em 1em
+    margin: 0
+
+strong
+  color: #990033
+
+ul
+  margin-top: 0
+
+h1
+  font-size: 1.5em
+  margin-top: 0
+
+h2
+  font-size: 1.25em
+
+h5
+  background-color: yellow
+  padding: 0.5em
+  font-size: 1em
+
+dt
+  margin: 0.5em 0 0.5em 0
+
+dd
+  margin-left: 1em
+
+li
+  margin: 1em 0 1em 0
+
+a
+  color: $dark
+  text-decoration: none
+  font-weight: bold
+  &:visited
+    color: $dark
+  &:hover
+    color: $dark
+
+nav
+  a
+    color: white
+    &:visited
+      color: white
+  @media screen and (min-width: $device-break)
+    float: left
+    width: $nav
+  ul
+    padding: 0
+    margin: 0
+  li
+    margin: 0
+    padding: 0.75em 1em 0.75em 1em
+    font-size: 0.75em
+    list-style-type: none
+    background-color: $bright
+    background-image: linear-gradient(to right, #067d98, $bright)
+
+div.page
+  background-color: white
+  padding: 1em
+  @media screen and (min-width: $device-break)
+    margin-left: $nav

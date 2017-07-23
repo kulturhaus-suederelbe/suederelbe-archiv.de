@@ -9,12 +9,11 @@
 
 <div class="page">
   {{ content }}
-</div>
-
-</body>
-
 <footer>
 <hr>
 <a href="/11.html">Impressum</a>
 </footer>
+</div>
+
+</body>
 </html>
