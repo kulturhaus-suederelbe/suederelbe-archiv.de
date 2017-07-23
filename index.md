@@ -97,8 +97,8 @@ Standorten. Die Öffnungszeiten der Bücherhalle finden Sie
 [hier](https://www.buecherhallen.de/neugraben).
 
 ![](/img/wsb_300x197_10_K.jpg)
-![](/img/_wsb_300x203_10_70.jpg)
-![](/img/_wsb_300x206_10_77.jpg)
-![](/img/_wsb_300x206_10_15.jpg)
+![](/img/wsb_300x203_10_70.jpg)
+![](/img/wsb_300x206_10_77.jpg)
+![](/img/wsb_300x206_10_15.jpg)
 Neugraben: Polizeirevier, Ortsamt / Kundenzentrum, Bücherhalle 1970 -
 1977 - 2015
