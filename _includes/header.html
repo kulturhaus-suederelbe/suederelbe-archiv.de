@@ -9,12 +9,12 @@
 <ul>
 {% for p in pages %}
 {% if p.dir == '/' or p.name == 'index.md' %}
-<li><a href="{{ p.url }}">{{ p.title }}</a></li>
+<a href="{{ p.url }}"><li {% if p.url == page.url %}class="active"{% endif %}>{{ p.title }}</li></a>
 {% if p.url == page.url or p.dir == page.dir and page.dir != '/' %}
 <ul>
 {% for d in site.pages %}
 {% if page.dir == d.dir and page.dir != '/' and d.name != 'index.md' %}
-<li><a href="{{ d.url }}">{{ d.title }}</a></li>
+<a href="{{ d.url }}"><li {% if d.url == page.url %}class="active"{% endif %}>{{ d.title }}</li></a>
 {% endif %}
 {% endfor %}
 </ul>
