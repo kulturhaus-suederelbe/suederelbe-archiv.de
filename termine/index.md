@@ -32,8 +32,12 @@ berichtet während des Rundgangs über die Zwangsarbeit, die Menschen und
 die diversen Lager in Süderelbe. Der Rundgang findet in Kooperation mit
 dem Freundeskreis KZ-Gedenkstätte Neuengamme e.V. statt. Treffpunkt ist
 an der HVV-Bushaltestelle Neugrabener Heideweg (240er Richtung
-Waldfrieden). Dauer: ca. 1 3/4 Std., ohne Anmeldung. Die Teilnahme am
-Rundgang ist kostenfrei. Der ursprünglich für **Sonntag, 10. September
+Waldfrieden).
+
+Dauer: ca. 1 3/4 Std., ohne Anmeldung. Die Teilnahme am
+Rundgang ist kostenfrei.
+
+Der ursprünglich für **Sonntag, 10. September
 2017, 11:00 Uhr** geplante Rundgang, die **Führung über den
 Archäologischen Wanderpfad in der Fischbeker Heide** muss aus
 Kapazitätsgründen leider entfallen. Wir danken für Ihr Verständnis.
@@ -69,5 +73,5 @@ Am Neugrabener Markt 7
 Nächste Termine für 2017 (jeweils am zweiten Donnerstag eines Monats):
 
 - kein Termin im August
-- 14. September
+- 14\. September
 - der Termin am 12. Oktober wird wegen des Themenabends auf den 5. Oktober vorgezogen.
