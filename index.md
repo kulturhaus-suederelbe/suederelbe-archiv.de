@@ -2,7 +2,7 @@
 title: Start
 ---
 
-# Süderelbe-Archiv
+# Aktuelles aus dem Süderelbe-Archiv
 
 Herzlich willkommen auf unseren Seiten! Wir arbeiten laufend an der
 Aktualisierung. Für Fragen und Anregungen erreichen Sie uns unter der
@@ -12,23 +12,10 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Nächster *Offener Treffpunkt* in der Bücherhalle Neugraben
 
-Sonnabend, 1. Juli 2017, von 10:00 bis 12:00 Uhr
+Sonnabend, 7. Oktober 2017, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4.html).
-
-### Nächster Stadtteilrundgang
-
-Sonntag, 16. Juli 2017, 11:00 Uhr
-
-**Hitlers Führerstadt Hamburg, das Brückenbaulager am Falkenbergsweg und
-die Zwangsarbeiter im Zweiten Weltkrieg in Süderelbe** - ein Rundgang
-mit Heiner Schultz über das Gelände des zunächst für die
-Brückenbauarbeiter geplanten Lagers am Falkenbergsweg. Heiner Schultz
-wird die Pläne hierzu und die Geschichte dahinter erläutern. Treffpunkt
-ist an der HVV-Bushaltestelle (240er Richtung Waldfrieden) Neugrabener
-Heideweg. Dauer: ca. 1 3/4 Std., ohne Anmeldung. Der Rundgang ist
-kostenfrei.
 
 ### Dritter Themenabend 2017
 
@@ -90,16 +77,5 @@ Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
 
 ## Dia-Schau in der Bücherhalle Neugraben
 
-In der Archiv-Ecke der Bücherhalle läuft zurzeit die Diaschau **„Von
-Behelfsheimen zur Marktpassage“** mit Ansichten aus dem Neugrabener
-Zentrum der Jahre 1970, 1977 und 2015 aus 24 Perspektiven an 18
-Standorten. Die Öffnungszeiten der Bücherhalle finden Sie
+In der Archiv-Ecke der Bücherhalle laufen auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe. Die Öffnungszeiten der Bücherhalle finden Sie
 [hier](https://www.buecherhallen.de/neugraben).
-
-![](/img/wsb_300x197_10_K.jpg)
-![](/img/wsb_300x203_10_70.jpg)
-![](/img/wsb_300x206_10_77.jpg)
-![](/img/wsb_300x206_10_15.jpg)
-
-Neugraben: Polizeirevier, Ortsamt / Kundenzentrum, Bücherhalle 1970 -
-1977 - 2015
