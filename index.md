@@ -15,15 +15,15 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 Sonnabend, 7. Oktober 2017, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
-bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4.html).
+bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term.html).
 
 ### Dritter Themenabend 2017
 
 Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
 **Von der Selbstversorgung zum Supermarkt**
-
-Ort: Stadtteilsaal im BGZ Süderelbe
+[Einladung (PDF)] (/img/2017_09_22_Einladung_Themenabend_Selbstversorgung_zum_Supermarkt.pdf)
+Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
 
 ### Vierter Themenabend 2017
 
@@ -43,7 +43,7 @@ seitdem wichtige Details neu erforscht und wichtige Verfolgtengruppen
 komplexer begriffen worden. An diesem Abend sollen einige bisher
 unbekannte Fälle beleuchtet sowie ein - auch zahlenmäßiger -
 Gesamtüberblick gegeben werden. Näheres zu diesen Abenden finden Sie
-auch unter [Termine](/4.html).
+auch unter [Termine](/4_term.html).
 
 Der Eintritt ist frei, über Spenden freuen wir uns.
 
