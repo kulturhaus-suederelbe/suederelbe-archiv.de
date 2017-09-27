@@ -33,4 +33,4 @@ Archiv-Ecke in der Bücherhalle
 Das Süderelbe-Archiv ist Mitglied im Verein Geschichtswerkstätten Hamburg
 e.V.
 
-(s.a. unter [Links](/6.html))
+(s.a. unter [Links](/7_link.html))
