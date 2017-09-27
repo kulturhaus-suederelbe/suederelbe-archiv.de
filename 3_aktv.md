@@ -9,7 +9,7 @@ Zum 500-jährigen Bestehen Neugrabens sind in diesem Jahr besondere
 Veranstaltungen geplant.
 
 Die aktuellen Termine der nächsten Veranstaltungen finden Sie unter
-[Termine](/4.html).
+[Termine](/4_term.html).
 
 ## Arbeitsgruppe
 

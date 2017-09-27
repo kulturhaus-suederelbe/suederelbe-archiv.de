@@ -1,4 +1,4 @@
-# 500 Jahre Neugraben
+# Neugraben
 
 ![](/img/wsb_180x81_500J_Neugraben.png)
 

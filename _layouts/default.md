@@ -11,7 +11,7 @@
   {{ content }}
 <footer>
 <hr>
-<a href="/99.html">Impressum</a>
+<a href="/9_impr.html">Impressum</a>
 </footer>
 </div>
 
