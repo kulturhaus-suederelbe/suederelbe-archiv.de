@@ -15,7 +15,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 Sonnabend, 7. Oktober 2017, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
-bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term.html).
+bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 ### Dritter Themenabend 2017
 
@@ -45,7 +45,7 @@ seitdem wichtige Details neu erforscht und wichtige Verfolgtengruppen
 komplexer begriffen worden. An diesem Abend sollen einige bisher
 unbekannte Fälle beleuchtet sowie ein - auch zahlenmäßiger -
 Gesamtüberblick gegeben werden. Näheres zu diesen Abenden finden Sie
-auch unter [Termine](/4_term.html).
+auch unter [Termine](/4_term/).
 
 Der Eintritt ist frei, über Spenden freuen wir uns.
 
