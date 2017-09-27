@@ -22,7 +22,7 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term.html).
 Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
 **Von der Selbstversorgung zum Supermarkt**
-[Einladung (PDF)] (/img/2017_09_22_Einladung_Themenabend_Selbstversorgung_zum_Supermarkt.pdf)
+[Einladung (PDF)](/img/2017_09_22_Einladung_Themenabend_Selbstversorgung_zum_Supermarkt.pdf) 
 Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
 
 ### Vierter Themenabend 2017
