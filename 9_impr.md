@@ -6,7 +6,7 @@ Kontakt
 :   [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de)
 
 Webseite
-:  Joachim Löffler
+:   Joachim Löffler
 :   Katrin Ehlberg
 
 Das Süderelbe-Archiv ist eine Arbeitsgruppe vom
@@ -31,6 +31,5 @@ Alle Angaben auf dieser Internetseite dienen nur der Information. Sie
 erheben weder Anspruch auf Vollständigkeit, noch auf Richtigkeit.
 Änderungen bleiben vorbehalten.
 
-Der Internetauftritt des Süderelbe-Archivs ist noch ein Entwurf. Bis zur
-endgültigen Fertigstellung verweisen wir auf das [Impressum des
+Als Arbeitsgruppe des Kulturhauses Süderelbe verweisen wir auf das [Impressum des
 Kulturhauses Süderelbe e.V.](http://kulturhaus-suederelbe.de/8.html).
