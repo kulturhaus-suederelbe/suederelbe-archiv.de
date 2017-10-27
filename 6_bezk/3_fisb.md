@@ -13,4 +13,4 @@ Die hier bezeichneten „hoffe und kothen“ müssen 1544 bereits bestanden habe
 
 Bevor der Amtsvogt 1544 „2 Hoffe und 3 kothen" in das Verzeichnis der im Amte vorhandenen Höfe eintragen konnte, müssen bereits Hofgebäude vorhanden und Ackerflächen kultiviert worden sein. Selbst unter der Annahme, dass die Siedler aus den umliegenden Geestdörfern hier ansässig wurden und Hilfe durch Verwandte beim Häuserbau und bei der Kultivierung erhielten, so muß es Jahre gedauert haben, bis die genannten Hofstellen fertiggestellt waren. Der erste Hausstand und das erste Vieh kamen wohl aus der Mitgift von den „Höfenern“ der Geestdörfer.
 
-![](/img/Fischbeker_Vergangenheit_IMG.jpg) Das Buch "Fischbeker Vergangenheit, Erinnerungen aus dem Dorf Fischbek in Wort und Bild" ist leider vergriffen und es ist leider auch im Bestand der Süderelbe-Archivs enthalten.
+![](/img/Fischbeker_Vergangenheit_IMG.jpg) Das Buch "Fischbeker Vergangenheit, Erinnerungen aus dem Dorf Fischbek in Wort und Bild" ist leider vergriffen und es ist und auch nicht im Bestand der Süderelbe-Archivs enthalten.
