@@ -6,11 +6,11 @@
 
 Ansiedlung „VISCHBECKE“ erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
 
-### 1851 -1861
+### 1851 - 1861
 
 Gemeinde Fischbeck mit Scheideholz im Amt Moisburg (ab 1859 Amt Tostedt) im Fürstentum Lüneburg.
 
-### 1861 -1881
+### 1861 - 1881
 
 Samtgemeinde Fischbeck-Neugraben (westlich vom Scheidebach ) mit Scheideholz, Amt Tostedt im Königreich Hannover. Ab 1866 in der Preußischen Provinz Hannover, Amt Harburg.
 
