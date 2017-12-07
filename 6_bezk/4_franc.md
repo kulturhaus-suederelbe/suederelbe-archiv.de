@@ -1,3 +1,3 @@
 # Francop
 
-**Wilhelm Mohr (...) 750 Jahre Francop**
+*Wilhelm Mohr (...) 750 Jahre Francop*
