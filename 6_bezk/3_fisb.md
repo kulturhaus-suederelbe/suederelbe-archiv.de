@@ -4,7 +4,7 @@
 
 ### 1544
 
-Ansiedlung „VISCHBECKE“ erstmals **schriftlich** erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
+Ansiedlung „VISCHBECKE“ erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
 
 ### 1851 - 1861
 
