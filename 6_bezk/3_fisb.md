@@ -1,4 +1,4 @@
-# Fischbek
+﻿# Fischbek
 
 ## Entstehung des Dorfes Fischbek
 
@@ -12,7 +12,7 @@ Gemeinde Fischbeck mit Scheideholz im Amt Moisburg (ab 1859 Amt Tostedt) im Für
 
 ### 1861 - 1881
 
-Samtgemeinde Fischbeck-Neugraben (westlich vom Scheidebach) mit Scheideholz, Amt Tostedt im Königreich Hannover. Ab 1866 in der Preußischen Provinz Hannover, Amt Harburg.
+Gemeinde Fischbeck-Neugraben (westlich vom Scheidebach) mit Scheideholz, Amt Tostedt im Königreich Hannover. Ab 1866 in der Preußischen Provinz Hannover, Amt Harburg.
 
 ### 1881 - 1885
 
