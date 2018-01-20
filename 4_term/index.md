@@ -55,7 +55,7 @@ Ihre Dokumente und Fotos.
 
 Nächste Termine für 2018 (jeweils sonnabends):
 
-- 3. März
+- 3\. März
 - ... 
 - ...
 
