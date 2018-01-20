@@ -1,5 +1,16 @@
 # Rückblick
 
+
+### Sonntag, 16. Juli 2017, 11:00 Uhr
+
+Rundgang zum Thema:
+Hitlers Führerstadt Hamburg, das Brückenbaulager am Falkenbergsweg und die Zwangsarbeiter im Zweiten Weltkrieg in Süderelbe - ein Rundgang mit Heiner Schultz über das Gelände des zunächst für die Brückenbauarbeiter geplanten Lagerkomplexes am Falkenbergsweg. Das ehemalige große Barackenlager am Falkenbergsweg steht in einem engen Zusammenhang mit Hitlers Plänen zur Neugestaltung des nördlichen Elbufers und der geplanten Hochbrücke über die Elbe. Hamburg als “Führerstadt” sollte das Tor des nationalsozialistischen Deutschlands zur Welt werden. In dem Brückenbaulager und einer großen Zahl anderer Lager wurden während des Krieges Zwangsarbeiter und Zwangsarbeiterinnen aus vielen Ländern untergebracht. In Hamburg sollen es nach Angaben der Gestapo 500.000 Personen gewesen sein. Heiner Schulz berichtet während des Rundgangs über die Zwangsarbeit, die Menschen und die diversen Lager in Süderelbe. Der Rundgang findet in Kooperation mit dem Freundeskreis KZ-Gedenkstätte Neuengamme e.V. statt. Treffpunkt ist an der HVV-Bushaltestelle Neugrabener Heideweg (240er Richtung Waldfrieden).
+
+Dauer: ca. 1 3/4 Std., ohne Anmeldung. Die Teilnahme am Rundgang ist kostenfrei.
+
+Etwa 30 Personen nahmen bei gutem Wetter an diesem Rundgang teil.
+
+
 ### Sonnabend, 20. Mai 2017, 15:00 Uhr
 
 Rundgang zu Stolpersteinen am
