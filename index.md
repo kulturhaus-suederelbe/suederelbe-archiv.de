@@ -12,10 +12,12 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Nächster *Offener Treffpunkt* in der Bücherhalle Neugraben
 
-Sonnabend, 6. Januar 2018, von 10:00 bis 12:00 Uhr
+Sonnabend, 3. Februar 2018, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
+
+*** Auch in 2018 planen wir wieder Themenabende - Näheres dazu bald an dieser Stelle! ***
 
 ### Dritter Themenabend 2017
 
