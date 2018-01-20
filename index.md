@@ -19,41 +19,9 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 ### Auch in 2018 planen wir wieder Themenabende - Näheres dazu bald an dieser Stelle!
 
+Die Abende werden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe stattfinden.
 
-
-Rückblick auf 2017:
-
-### Dritter Themenabend
-
-Donnerstag, 12. Oktober 2017, 19:30 Uhr
-
-**Von der Selbstversorgung zum Supermarkt**
-
-[Einladung (PDF)](/img/2017_09_22_Einladung_Themenabend_Selbstversorgung_zum_Supermarkt.pdf) 
-
-Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
-
-### Vierter Themenabend
-
-Donnerstag, 16. November 2017, 19:30 Uhr
-
-**Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 -
-1945** mit Dr. Christian Gotthardt, Harburg
-
-Ort: Stadtteilsaal im BGZ Süderelbe
-
-Im Februar 2005 erschien die erweiterte Ausgabe des Buchs "die
-anderen. Widerstand und Verfolgung in Harburg und Wilhelmsburg.
-Zeugnisse und Berichte 1933 - 1945." Die Autoren hatten damals
-umfangreiche Archivrecherchen vorgenommen und konnten sicher sein, den
-Gegenstand im Wesentlichen erfasst zu haben... aber natürlich sind
-seitdem wichtige Details neu erforscht und wichtige Verfolgtengruppen
-komplexer begriffen worden. An diesem Abend sollen einige bisher
-unbekannte Fälle beleuchtet sowie ein - auch zahlenmäßiger -
-Gesamtüberblick gegeben werden. Näheres zu diesen Abenden finden Sie
-auch unter [Termine](/4_term/).
-
-Der Eintritt ist frei, über Spenden freuen wir uns.
+Der Eintritt bleibt frei, über Ihre Spenden freuen wir uns!
 
 ## Aufruf
 
