@@ -4,19 +4,18 @@
 
 **Unsere Themenabende finden wieder ab dem Frühjahr 2018 statt.**
 
-### Themenabende in der zweiten Jahreshälfte 2017
+### Themenabende im Frühjahr 2018
 
-Von der Selbstversorgung zum Supermarkt
-:   Donnerstag, 12. Oktober 2017, 19:30 Uhr
+Wir planen Abende zu Altenwerder (22. März) und Moorburg (Mai/Juni).
 
-Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945
-:   Donnerstag, 16. November 2017, 19:30 Uhr
 
-Näheres zu diesen Terminen wird an dieser Stelle laufend ergänzt.
+
+Näheres zu diesen Terminen wird an dieser Stelle noch veröffentlicht werden.
+
 
 ## Stadtteilrundgänge
 
-### Sonnabend, ... Mai 2018 
+### Sonnabend, ... Mai 2018 - Der historische Dorfkern Neugraben
 
 (...)
 
