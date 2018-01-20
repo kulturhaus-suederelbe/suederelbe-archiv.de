@@ -69,6 +69,6 @@ Am Neugrabener Markt 7
 
 Nächste Termine für 2017 (jeweils am zweiten Donnerstag eines Monats):
 
-- 8. März (Hamburger Frühjahrsferein)
+- 8\. März (Hamburger Frühjahrsferein)
 - ...
 - ...
