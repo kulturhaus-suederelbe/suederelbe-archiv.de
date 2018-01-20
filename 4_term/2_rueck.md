@@ -16,7 +16,9 @@ Der Abend war mit knapp 60 Personen gut besucht.
 
 Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
-Einladung (PDF)
+
+[Einladung (PDF)](/img/2017_09_22_Einladung_Themenabend_Selbstversorgung_zum_Supermarkt.pdf) 
+
 
 Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
 
