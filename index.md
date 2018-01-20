@@ -19,7 +19,10 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 ### Auch in 2018 planen wir wieder Themenabende - Näheres dazu bald an dieser Stelle!
 
-### Dritter Themenabend 2017
+
+Rückblick auf 2017:
+
+### Dritter Themenabend
 
 Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
@@ -29,7 +32,7 @@ Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
 Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
 
-### Vierter Themenabend 2017
+### Vierter Themenabend
 
 Donnerstag, 16. November 2017, 19:30 Uhr
 
