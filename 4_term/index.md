@@ -40,8 +40,8 @@ Ihre Dokumente und Fotos.
 Nächste Termine für 2018 (jeweils sonnabends):
 
 - 3\. März
-- ... 
-- ...
+- 7\. April 
+- 5\. Mai
 
 ## Geschichtsgruppe
 
@@ -54,5 +54,5 @@ Am Neugrabener Markt 7
 Nächste Termine für 2017 (jeweils am zweiten Donnerstag eines Monats):
 
 - 8\. März (Hamburger Frühjahrsferein)
-- ...
+- 12\. April
 - ...
