@@ -4,13 +4,9 @@
 
 **Unsere Themenabende finden wieder ab dem Frühjahr 2018 statt.**
 
-### Themenabende im Frühjahr 2018
+Wir planen Abende zu Altenwerder - Verlust einer Kulturlandschaft (22. März) und - noch offen - zu Moorburg (Mai/Juni).
 
-Wir planen Abende zu Altenwerder (22. März) und Moorburg (Mai/Juni).
-
-
-
-Näheres zu diesen Terminen wird an dieser Stelle noch veröffentlicht werden.
+Näheres zu diesen und weiteren Terminen in der zweiten Jahreshälfte wird an dieser Stelle noch veröffentlicht.
 
 
 ## Stadtteilrundgänge
