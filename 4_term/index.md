@@ -17,7 +17,7 @@ Näheres zu diesen Terminen wird an dieser Stelle noch veröffentlicht werden.
 
 ### Sonnabend, ... Mai 2018 - Der historische Dorfkern Neugraben
 
-(...)
+Mitarbeiter des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Plätzen in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 
 Dauer: ca. 1 3/4 Std., mit Voranmeldung. Die Teilnahme am Rundgang ist kostenfrei.
 
@@ -55,4 +55,4 @@ Nächste Termine für 2017 (jeweils am zweiten Donnerstag eines Monats):
 
 - 8\. März (Hamburger Frühjahrsferein)
 - 12\. April
-- ...
+
