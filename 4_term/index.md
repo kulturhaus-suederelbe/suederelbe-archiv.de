@@ -11,7 +11,7 @@ Näheres zu diesen und weiteren Terminen in der zweiten Jahreshälfte wird an di
 
 ## Stadtteilrundgänge
 
-### Sonnabend, ... Mai 2018 - Der historische Dorfkern Neugraben
+### Sonnabend, 26\. Mai 2018 - Der historische Dorfkern Neugraben
 
 Mitarbeiter des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Plätzen in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 
