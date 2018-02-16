@@ -15,6 +15,7 @@ Näheres zu diesen und weiteren Terminen in der zweiten Jahreshälfte wird an di
 
 Mitarbeiter des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Plätzen in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 
+Treffpunkt um 14:30 Uhr vor dem BGZ Süderelbe (Nordausgang P+R-Parkhaus S-Neugraben)
 Dauer: ca. 1 3/4 Std., mit Voranmeldung. Die Teilnahme am Rundgang ist kostenfrei.
 
 
