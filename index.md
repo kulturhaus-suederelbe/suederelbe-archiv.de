@@ -19,14 +19,15 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 ### Auch in 2018 planen wir wieder Themenabende - Näheres dazu bald an dieser Stelle!
 
-Die Abende werden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe stattfinden.
+Die Abende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.
 
-Der Eintritt bleibt frei, über Ihre Spenden freuen wir uns!
+Der Eintritt zu unseren Themenabenden bleibt frei - über Ihre Spenden freuen wir uns!
+
 
 ## Aufruf
 
-Aktuell im Juni 2017: **Glasplattennegative** (etwa aus den Jahren 1870
-bis 1940) müssen wegen drohenden Verfalls jetzt digitalisiert werden.
+Nach wie vor aktuell: **Glasplattennegative** (aus etwa den Jahren 1870
+bis 1940) müssen wegen ihres drohenden Verfalls jetzt digitalisiert werden.
 Haben Sie solche Negative bei sich zu Hause? Kommen Sie zu einem unserer
 Offenen Treffpunkte und informieren Sie sich.
 
@@ -35,12 +36,12 @@ und Berichte von Zeitzeugen aus den Ortsteilen Altenwerder, Cranz,
 Hausbruch, Francop, Neuenfelde, Neugraben-Fischbek und Moorburg des
 Süderelbegebietes.
 
-Sind Sie selbst oder kennen Sie Zeitzeugen, die für Interviews zur
+Kennen Sie Zeitzeugen oder sind Sie selbst Zeitzeuge, der oder die für Interviews zur
 jüngeren deutschen, vor allem der regionalen Geschichte der
 Süderelberegion zur Verfügung stehen?
 
-Besitzen Sie Dokumente oder Gegenstände - aus eigenem Besitz oder
-aktuellem Nachlass, die Aufschlüsse zur Geschichte der Süderelberegion
+Besitzen Sie Dokumente oder Gegenstände - aus der eigenen Familie oder
+einem aktuellen Nachlass, die Aufschlüsse zur Geschichte der Süderelberegion
 geben können?
 
 Von besonderem Interesse für uns sind die Zeit zwischen beiden
