@@ -2,29 +2,29 @@
 
 ## Themenabende
 
-**Unsere Themenabende finden wieder ab dem Frühjahr 2018 statt.**
+**Erster Themenabend am 22. März 2018**
 
-Wir planen Abende zu Altenwerder - Verlust einer Kulturlandschaft (22. März) und - noch offen - zu Moorburg (Mai/Juni).
+Altenwerder - Verlust einer Kulturlandschaft. Dr. Gisela Betram, Geschäftsführerin der Stiftung Ausgleich Altenwerder berichtet über die Arbeit der Stiftung und die Vorgeschichte ihrer Gründung. 
 
-Näheres zu diesen und weiteren Terminen in der zweiten Jahreshälfte wird an dieser Stelle noch veröffentlicht.
+Näheres zu diesem und weiteren Terminen wird an dieser Stelle noch ergänzt.
 
 
 ## Stadtteilrundgänge
 
 ### Sonnabend, 26\. Mai 2018 - Der historische Dorfkern Neugraben
 
-Mitarbeiter des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Plätzen in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
+Mitarbeiter des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Punkten in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 
 Treffpunkt um 14:30 Uhr vor dem BGZ Süderelbe (Nordausgang P+R-Parkhaus S-Neugraben)
-Dauer: ca. 1 3/4 Std., mit Voranmeldung. Die Teilnahme am Rundgang ist kostenfrei.
+Dauer: ca. 1 3/4 Std., mit Voranmeldung (info@suederelbe-archiv.de). Die Teilnahme am Rundgang ist kostenfrei. Sie ist auf etwa 25 Teilnehmer begrenzt.
 
 
 
-Eine Übersicht über alle Stadtteilrundgänge 2018 der Geschichtswerkstätten Hamburg entnehmen sie bitte dem Heft [Kiek mol](/img/Kiekmol_2017.pdf). Die Termine für 2018 werden im Februar 2018 veröffentlicht. Die Kiek mol-Hefte liegen ab etwa Ende Februar in der Bücherhalle aus!
+Eine Übersicht über alle Stadtteilrundgänge 2018 der Geschichtswerkstätten Hamburg entnehmen sie bitte dem Heft [Kiek mol](/img/Kiekmol_2017.pdf). Die Kiek mol-Hefte liegen ab sofort in der Bücherhalle Neugraben aus!
 
 ## Offener Treffpunkt
 
-### Sonnabend, 3. Februar 2018, 10:00 bis 12:00 Uhr
+### Sonnabend, 3. März 2018, 10:00 bis 12:00 Uhr
 
 Archiv-Ecke in der Bücherhalle Neugraben  
 Am Neugrabener Markt 7  
@@ -42,7 +42,7 @@ Nächste Termine für 2018 (jeweils sonnabends):
 
 ## Geschichtsgruppe
 
-Nächstes Treffen: **Donnerstag, 8. Februar 2018, 19:30 Uhr**
+Nächstes Treffen: **Donnerstag, 8. März 2018, 19:30 Uhr**
 
 Bücherhalle Neugraben  
 Am Neugrabener Markt 7  
