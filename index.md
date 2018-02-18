@@ -23,7 +23,7 @@ Donnerstag, 22. März 2018, 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Jo
 ## Altenwerder - Verlust einer Kulturlandschaft
 Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
 
-**/////**
+**______________________________________________________________________________________**
 
 
 
