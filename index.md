@@ -17,7 +17,13 @@ Sonnabend, 3. März 2018, von 10:00 bis 12:00 Uhr
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
-### Auch in 2018 planen wir wieder Themenabende - Näheres dazu bald an dieser Stelle!
+### Themenabende 2018:
+
+Donnerstag, 22. März 2018, 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2:
+
+## Altenwerder - Verlust einer Kulturlandschaft
+Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
+
 
 Die Abende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.
 
