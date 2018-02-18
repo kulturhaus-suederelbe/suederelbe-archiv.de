@@ -23,9 +23,11 @@ Donnerstag, 22. März 2018, 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Jo
 ## Altenwerder - Verlust einer Kulturlandschaft
 Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
 
-*****
+**/////**
 
-Die Abende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.
+
+
+(Die Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
 
 Der Eintritt zu unseren Themenabenden bleibt frei - über Ihre Spenden freuen wir uns!
 
