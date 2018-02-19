@@ -52,4 +52,5 @@ Nächste Termine für 2017 (jeweils am zweiten Donnerstag eines Monats):
 
 - 8\. März (Hamburger Frühjahrsferein)
 - 12\. April
+- 17\. Mai (wegen des Himmelfahrtstags am 10. Mai)
 
