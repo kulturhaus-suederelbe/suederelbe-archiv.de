@@ -19,11 +19,12 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 ### Themenabende 2018:
 
-Donnerstag, 22. März 2018, 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2:
+Donnerstag, 22. März 2018, 19:30 Uhr 
+im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2:
 ## Altenwerder - Verlust einer Kulturlandschaft
 Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
 
-**______________________________________________________________________________________**
+**_______________________________________________________________________**
 
 
 
