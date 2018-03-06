@@ -60,13 +60,10 @@ Francoper Straße und Im Neugrabener Dorf. Der Rundgang stieß wiederum
 auf großes Interesse und war mit etwa 30 Personen, die sich auch vom
 leichten Regen nicht abschrecken ließen, sehr gut besucht.
 
-### Erster Themenabend in 2017: Geschichte der Deiche im Alten Land und in
-Süderelbe
+### Erster Themenabend in 2017: Geschichte der Deiche im Alten Land und in Süderelbe - *Irrungen am Hinterdeich* 
+am Donnerstag, 30. März 2017, 19:30 Uhr in der Bücherhalle Neugraben,
 
-*Irrungen am Hinterdeich* am Donnerstag, 30. März 2017, 19:30
-Uhr in der Bücherhalle Neugraben, Referent: Dr. Michael Ehrhardt,
-Historiker beim Landschaftsverband Stade. Die Einladung finden Sie als
-pdf [hier](/img/2017_03_07_Einladung_Themenabend_Geschichte_der_Deiche_im_Alten_Land_und_Suederelbe-1.pdf).
+Referent: Dr. Michael Ehrhardt, Historiker beim Landschaftsverband Stade. Die Einladung finden Sie als pdf [hier](/img/2017_03_07_Einladung_Themenabend_Geschichte_der_Deiche_im_Alten_Land_und_Suederelbe-1.pdf).
 
 ### Lesung: am Freitag, 21. Oktober 2016, 19:00 Uhr
 
