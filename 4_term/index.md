@@ -6,7 +6,7 @@
 
 Altenwerder - Verlust einer Kulturlandschaft. Dr. Gisela Betram, Geschäftsführerin der Stiftung Ausgleich Altenwerder berichtet über die Arbeit der Stiftung und die Vorgeschichte ihrer Gründung. 
 
-Näheres zu diesem und weiteren Terminen wird an dieser Stelle noch ergänzt.
+Näheres zu diesem und weiteren Terminen finden Sie auf der Startseite!
 
 
 ## Stadtteilrundgänge
@@ -24,7 +24,7 @@ Eine Übersicht über alle Stadtteilrundgänge 2018 der Geschichtswerkstätten H
 
 ## Offener Treffpunkt
 
-### Sonnabend, 3. März 2018, 10:00 bis 12:00 Uhr
+### Sonnabend, 7. April 2018, 10:00 bis 12:00 Uhr
 
 Archiv-Ecke in der Bücherhalle Neugraben  
 Am Neugrabener Markt 7  
@@ -36,9 +36,10 @@ Ihre Dokumente und Fotos.
 
 Nächste Termine für 2018 (jeweils sonnabends):
 
-- 3\. März
 - 7\. April 
 - 5\. Mai
+- 2\. Juni
+- 7\. Juli
 
 ## Geschichtsgruppe
 
