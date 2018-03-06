@@ -24,7 +24,7 @@ im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg:
 ## Altenwerder - Verlust einer Kulturlandschaft
 Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
 
-Einladung
+Einladung [Bilder](img/
 
 [(weitere Informationen)](http://stiftung-ausgleich-altenwerder.de/)
 
