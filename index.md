@@ -10,7 +10,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ## Aktuelles
 
-### Nächster *Offener Treffpunkt* in der Bücherhalle Neugraben
+### Nächster ***Offener Treffpunkt*** in der Bücherhalle Neugraben
 
 Sonnabend, 7. April 2018, von 10:00 bis 12:00 Uhr
 
