@@ -1,4 +1,4 @@
-﻿---
+**﻿---
 title: Start
 ---
 
@@ -21,7 +21,7 @@ bei Ihrer Recherche. Weitere Termine finden Sie [hier](/4_term/).
 
 Am Donnerstag, 22. März 2018, um 19:30 Uhr
 im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg:
-## Altenwerder - Verlust einer Kulturlandschaft
+## **Altenwerder - Verlust einer Kulturlandschaft**
 Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
 
 [Einladung](img/2018_03_22_Einladung_Themenabend_Stiftung_Ausgleich_Altenwerder.pdf)
