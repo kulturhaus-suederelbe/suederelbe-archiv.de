@@ -23,13 +23,13 @@ Neugrabener Markt 7.
 Dort in den Schränken der Archivecke
 sind alle Bücher, Dokumente, Karten, Fotos, Bild- und Tonträger sowie
 einige Gegenstände weitgehend systematisch geordnet. Zu den
-[Öffnungszeiten der
-Bücherhalle](https://www.buecherhallen.de/neugraben)
+[Öffnungszeiten der Bücherhalle](https://www.buecherhallen.de/neugraben)
 können alle Materialien eingesehen werden. Eine Kopiermöglichkeit ist
 vorhanden.
 
-![](/img/Archivecke.png)
-Archiv-Ecke in der Bücherhalle
+![](/img/Buecherhalle_Neugraben_1.png)
+![](/img/Archivecke.png)  
+Bücherhalle Neugraben mit Archivecke
 
 ## Kontakt
 
@@ -41,6 +41,5 @@ Das Süderelbe-Archiv ist eine Kooperation vom Kulturhaus-Süderelbe e.V. und de
 
 ## Hamburger Geschichtswerkstätten
 
-Das Süderelbe-Archiv ist Mitglied im [Verein Geschichtswerkstätten Hamburg
-e.V.] (https://www.geschichtswerkstaetten-hamburg.de/)
+Das Süderelbe-Archiv ist Mitglied im [Verein Geschichtswerkstätten Hamburg e.V.](https://www.geschichtswerkstaetten-hamburg.de/)
 
