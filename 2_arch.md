@@ -10,7 +10,7 @@ steht historisch interessierten Bürgern und vor allem Schülern der
 umliegenden Schulen zur Verfügung.
 
 ![](/img/Bahnhof_Ngr_alt.png)
-![](/img/Bahnhof_Ngr_neu.png)
+![](/img/Bahnhof_Ngr_neu.png)  
 Der alte und der neue Bahnhof Neugraben. 1984 wurde die S-Bahnstrecke
 bis Neugraben eingeweiht und der Bahnhof veränderte sein Aussehen.
 
@@ -27,6 +27,7 @@ einige Gegenstände weitgehend systematisch geordnet. Zu den
 Bücherhalle](https://www.buecherhallen.de/neugraben)
 können alle Materialien eingesehen werden. Eine Kopiermöglichkeit ist
 vorhanden.
+
 ![](/img/Archivecke.png)
 Archiv-Ecke in der Bücherhalle
 
@@ -36,7 +37,7 @@ Haben Sie Fragen, dann senden Sie uns bitte eine Mail an [info@suederelbe-archiv
 
 ## Organisatorisches
 
-Das Süderelbe-Archiv ist eine Kooperation von Kulturhaus-Süderelbe e.V. und Bücherhalle Neugraben.
+Das Süderelbe-Archiv ist eine Kooperation vom Kulturhaus-Süderelbe e.V. und der Bücherhalle Neugraben.
 
 ## Hamburger Geschichtswerkstätten
 

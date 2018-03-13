@@ -32,4 +32,4 @@ erheben weder Anspruch auf Vollständigkeit, noch auf Richtigkeit.
 Änderungen bleiben vorbehalten.
 
 Als Arbeitsgruppe des Kulturhauses Süderelbe verweisen wir auf das [Impressum des
-Kulturhauses Süderelbe e.V.](http://kulturhaus-suederelbe.de/8.html).
+Kulturhauses Süderelbe e.V.](http://kulturhaus-suederelbe.de).

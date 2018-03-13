@@ -14,7 +14,7 @@ einem Arbeitstreffen, um Gedanken auszutauschen und Aktivitäten zu
 besprechen. Die Geschichtsgruppe ist offen für alle an der Ortsgeschichte
 Interessierten.
 
-Termine der Arbeitsgruppe im ersten Halbjahr 2018: 11. Januar, 8. Februar, 8. März, 12. April, 14. Mai, 14. Juni
+Arbeitsgruppen-Termine bis Sommer 2018: 11. Januar, 8. Februar, 8. März, 12. April, 14. Mai, 14. Juni
 
 ## Offener Treffpunkt
 
@@ -23,7 +23,7 @@ Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der
 Bücherhalle ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu
 geben.
 
-Termine des offenen Treffs im 1. Halbjahr 2018: 6. Januar, 3. Februar, 3. März, 7. April, 5. Mai, 2. Juni, 7. Juli
+Offener Treffpunkt bis Sommer 2018: 6. Januar, 3. Februar, 3. März, 7. April, 5. Mai, 2. Juni, 7. Juli
 
 ## Themenabende
 
@@ -32,5 +32,5 @@ interessierte Bürger und werden sehr gut besucht. Die Materialien der
 Themenabende sind als Foto- und Audiodateien im Archiv verfügbar. Zu den
 Themenabenden laden wir mit Plakaten und über einen E-Mail-Verteiler ein.
 
-Haben Sie Fragen an uns oder möchten sie in unseren EW-Mail-Verteiler aufgenommen werden, senden Sie uns
+Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden, senden Sie uns
 bitte eine Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
