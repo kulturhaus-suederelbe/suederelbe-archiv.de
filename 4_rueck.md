@@ -1,18 +1,22 @@
-# Rückblick
+# Veranstaltungsarchiv
 
 
-### Vierter Themenabend - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
+### Vierter Themenabend 2017 - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
 
 Donnerstag, 16. November 2017, 19:30 Uhr
 
 Ort: Stadtteilsaal im BGZ Süderelbe
 
-Im Februar 2005 erschien die erweiterte Ausgabe des Buchs “die anderen. Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945.” Die Autoren hatten damals umfangreiche Archivrecherchen vorgenommen und konnten sicher sein, den Gegenstand im Wesentlichen erfasst zu haben… aber natürlich sind seitdem wichtige Details neu erforscht und wichtige Verfolgtengruppen komplexer begriffen worden. An diesem Abend sollen einige bisher unbekannte Fälle beleuchtet sowie ein - auch zahlenmäßiger - Gesamtüberblick gegeben werden.
+Im Februar 2005 erschien die erweiterte Ausgabe des Buchs *„die anderen. Widerstand und Verfolgung in Harburg und Wilhelmsburg. 
+Zeugnisse und Berichte 1933 - 1945.”* Die Autoren hatten damals umfangreiche Archivrecherchen vorgenommen und konnten sicher sein, 
+den Gegenstand im Wesentlichen erfasst zu haben… aber natürlich sind seitdem wichtige Details neu erforscht und wichtige 
+Verfolgtengruppen komplexer begriffen worden. An diesem Abend sollen einige bisher unbekannte Fälle beleuchtet sowie ein - 
+auch zahlenmäßiger - Gesamtüberblick gegeben werden.
 
 Der Abend war mit knapp 60 Personen gut besucht.
 
 
-### Dritter Themenabend - Von der Selbstversorgung zum Supermarkt - mit Ines Sulzbacher und Uwe Michelau
+### Dritter Themenabend 2017 - Von der Selbstversorgung zum Supermarkt - mit Ines Sulzbacher und Uwe Michelau
 
 Donnerstag, 12. Oktober 2017, 19:30 Uhr
 
@@ -26,9 +30,7 @@ Ort: Stadtteilsaal im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg
 ### Sonntag, 16. Juli 2017, 11:00 Uhr
 
 Rundgang zum Thema:
-Hitlers Führerstadt Hamburg, das Brückenbaulager am Falkenbergsweg und die Zwangsarbeiter im Zweiten Weltkrieg in Süderelbe - ein Rundgang mit Heiner Schultz über das Gelände des zunächst für die Brückenbauarbeiter geplanten Lagerkomplexes am Falkenbergsweg. Das ehemalige große Barackenlager am Falkenbergsweg steht in einem engen Zusammenhang mit Hitlers Plänen zur Neugestaltung des nördlichen Elbufers und der geplanten Hochbrücke über die Elbe. Hamburg als “Führerstadt” sollte das Tor des nationalsozialistischen Deutschlands zur Welt werden. In dem Brückenbaulager und einer großen Zahl anderer Lager wurden während des Krieges Zwangsarbeiter und Zwangsarbeiterinnen aus vielen Ländern untergebracht. In Hamburg sollen es nach Angaben der Gestapo 500.000 Personen gewesen sein. Heiner Schulz berichtet während des Rundgangs über die Zwangsarbeit, die Menschen und die diversen Lager in Süderelbe. Der Rundgang findet in Kooperation mit dem Freundeskreis KZ-Gedenkstätte Neuengamme e.V. statt. Treffpunkt ist an der HVV-Bushaltestelle Neugrabener Heideweg (240er Richtung Waldfrieden).
-
-Dauer: ca. 1 3/4 Std., ohne Anmeldung. Die Teilnahme am Rundgang ist kostenfrei.
+Hitlers Führerstadt Hamburg, das Brückenbaulager am Falkenbergsweg und die Zwangsarbeiter im Zweiten Weltkrieg in Süderelbe - ein Rundgang mit Heiner Schultz über das Gelände des zunächst für die Brückenbauarbeiter geplanten Lagerkomplexes am Falkenbergsweg. Das ehemalige große Barackenlager am Falkenbergsweg steht in einem engen Zusammenhang mit Hitlers Plänen zur Neugestaltung des nördlichen Elbufers und der geplanten Hochbrücke über die Elbe. Hamburg als “Führerstadt” sollte das Tor des nationalsozialistischen Deutschlands zur Welt werden. In dem Brückenbaulager und einer großen Zahl anderer Lager wurden während des Krieges Zwangsarbeiter und Zwangsarbeiterinnen aus vielen Ländern untergebracht. In Hamburg sollen es nach Angaben der Gestapo 500.000 Personen gewesen sein. Heiner Schulz berichtet während des Rundgangs über die Zwangsarbeit, die Menschen und die diversen Lager in Süderelbe. Der Rundgang findet in Kooperation mit dem Freundeskreis KZ-Gedenkstätte Neuengamme e.V. statt.
 
 Etwa 30 Personen nahmen bei gutem Wetter an diesem Rundgang teil.
 

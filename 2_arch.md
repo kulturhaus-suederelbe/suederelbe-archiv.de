@@ -1,4 +1,4 @@
-# Süderelbe-Archiv
+# Über uns
 
 ## Unsere Ziele
 
@@ -10,27 +10,36 @@ steht historisch interessierten Bürgern und vor allem Schülern der
 umliegenden Schulen zur Verfügung.
 
 ![](/img/Bahnhof_Ngr_alt.png)
-![](/img/Bahnhof_Ngr_neu.png "Der alte und der neue Bahnhof Neugraben. 1984 wurde die S-Bahnstrecke
-bis Neugraben eingeweiht und der Bahnhof veränderte sein Aussehen.")
+![](/img/Bahnhof_Ngr_neu.png)
+Der alte und der neue Bahnhof Neugraben. 1984 wurde die S-Bahnstrecke
+bis Neugraben eingeweiht und der Bahnhof veränderte sein Aussehen.
 
 
 ## Unser Standort
 
-Die Sammlung des Süderelbe-Archivs befindet sich in der Bücherhalle
-Neugraben, Neugrabener Markt 7. Dort in den Schränken der Archivecke
+Die Sammlung des Süderelbe-Archivs befindet sich in der  
+Bücherhalle Neugraben,  
+Neugrabener Markt 7.  
+Dort in den Schränken der Archivecke
 sind alle Bücher, Dokumente, Karten, Fotos, Bild- und Tonträger sowie
 einige Gegenstände weitgehend systematisch geordnet. Zu den
 [Öffnungszeiten der
 Bücherhalle](https://www.buecherhallen.de/neugraben)
 können alle Materialien eingesehen werden. Eine Kopiermöglichkeit ist
 vorhanden.
-
 ![](/img/Archivecke.png)
 Archiv-Ecke in der Bücherhalle
 
+## Kontakt
+
+Haben Sie Fragen, dann senden Sie uns bitte eine Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
+
+## Organisatorisches
+
+Das Süderelbe-Archiv ist eine Kooperation von Kulturhaus-Süderelbe e.V. und Bücherhalle Neugraben.
+
 ## Hamburger Geschichtswerkstätten
 
-Das Süderelbe-Archiv ist Mitglied im Verein Geschichtswerkstätten Hamburg
-e.V.
+Das Süderelbe-Archiv ist Mitglied im [Verein Geschichtswerkstätten Hamburg
+e.V.] (https://www.geschichtswerkstaetten-hamburg.de/)
 
-(s.a. unter [Links](/7_link.html))
