@@ -2,7 +2,7 @@
 
 ## Entstehung des Dorfes Fischbek
 
-### 1544  
+### 1544
 Ansiedlung „VISCHBECKE“ erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
 
 ### 1851 - 1861  
@@ -23,5 +23,5 @@ Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) 
 ### 1948  
 Die Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) und der östlich vom Scheidebach liegende Teil der Landgemeinde Neugraben wurden zum Stadtteil Neugraben-Fischbek in der Freien und Hansestadt Hamburg.
 
-## Weblinks  
-[(Wikipedia Neugraben-Fischbek)](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek)
+## Weblinks
+[Wikipedia Neugraben-Fischbek](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek)

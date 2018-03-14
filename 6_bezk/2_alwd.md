@@ -11,3 +11,6 @@ Broockmann/Zapf (1996), Süderelbe. Region der Gegensätze (Signatur B0006
 a + b, Schrank 1)
 
 Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 1)
+
+## Weblinks
+[Wikipedia Altenwerder](https://de.wikipedia.org/wiki/Hamburg-Altenwerder)
