@@ -6,3 +6,6 @@ zurück.
 Das heutige Neuenfelde geht zurück auf die Dörfer Saschfeld und Niefeld
 auf der ehemaligen Elbinsel Hasselwerder, als *Haslewarther* erstmals in
 einer Urkunde von 1059 erwähnt.
+
+## Weblinks zu Neuenfelde
+[Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neuenfelde)

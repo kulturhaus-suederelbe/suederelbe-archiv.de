@@ -90,5 +90,5 @@ Süderelbe-Archiv](mailto:info@suederelbe-archiv.de).
 -   Unser Dorf im Wandel der Zeit
 -   Der Bauermeister wäre heute der Bürgermeister
 
-## Weblinks  
-[(Wikipedia Neugraben-Fischbek)](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek)
+## Weblinks zur Neugraben
+[Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek) (Neugraben-Fischbek)

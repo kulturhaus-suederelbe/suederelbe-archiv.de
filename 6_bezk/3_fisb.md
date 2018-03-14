@@ -23,5 +23,5 @@ Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) 
 ### 1948  
 Die Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) und der östlich vom Scheidebach liegende Teil der Landgemeinde Neugraben wurden zum Stadtteil Neugraben-Fischbek in der Freien und Hansestadt Hamburg.
 
-## Weblinks
-[Wikipedia Neugraben-Fischbek](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek)
+## Weblinks zu Fischbek
+[Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek) (Neugraben-Fischbek)
