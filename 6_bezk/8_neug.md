@@ -13,10 +13,9 @@ Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016
 erschienen und in der Bücherhalle Neugraben erhältlich. Sichern Sie sich
 Ihr Exemplar! Das Buch eignet sich auch sehr gut als Geschenk.**
 
-Am Freitag, 21. Oktober 2016, 19:00 Uhr fand eine Lesung von Auszügen
+Am 21. Oktober 2016 fand eine Lesung von Auszügen
 aus dem Buch mit Uwe Michelau, einem der Autoren, im Kulturhaus
-Süderelbe statt. Im Mai 2017 wird es einen weiteren Vorleseabend
-geben.
+Süderelbe statt. Am 18. Mai 2017 gab es einen weiteren Vorleseabend mit Ines Sulzbacher und Uwe Michelau.
 
 ![](/img/Buchtitel_klein.png)
 
@@ -90,3 +89,6 @@ Süderelbe-Archiv](mailto:info@suederelbe-archiv.de).
 -   Vom offenen Feuer bis zur modernen Glühlampe
 -   Unser Dorf im Wandel der Zeit
 -   Der Bauermeister wäre heute der Bürgermeister
+
+## Weblinks  
+[(Wikipedia Neugraben-Fischbek)](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek)
