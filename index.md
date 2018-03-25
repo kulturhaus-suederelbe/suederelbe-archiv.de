@@ -18,19 +18,6 @@ Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche.
 
 * * *
-### Themenabende 2018:
-
-Am Donnerstag, 22. März 2018, um 19:30 Uhr
-im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg:
-## **Altenwerder - Verlust einer Kulturlandschaft**
-Referentin: Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder
-
-[Einladung](img/2018_03_22_Einladung_Themenabend_Stiftung_Ausgleich_Altenwerder.pdf)
-
-[(weitere Informationen)](http://stiftung-ausgleich-altenwerder.de/)
-
-**________________________________________________________________**
-
 
 Am Sonntag, 15. April 2018   11:00 - 12:00 Uhr:
 ## Rundgang über das Lagergelände des ehemaligen Konzentrationslagers am Falkenbergsweg
@@ -40,7 +27,7 @@ Veranstalter: KZ-Gedenkstätte Neuengamme, Süderelbe-Archiv,
 Referent: Karl-Heinz Schultz, Initiative Gedenken in Harburg
 [(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/spaziergang-in-die-vergangenheit/)
 
-**________________________________________________________________**
+* * *
 
 
 Am Sonnabend 16. Juni 2018  15:00 – 16:30 Uhr:
@@ -51,13 +38,11 @@ Veranstalter: Initiative Gedenken in Harburg, Süderelbe-Archiv,
 ReferentInnen: Karl-Heinz Schultz, Initiative Gedenken in Harburg; Stephan Kaiser, Süderelbe-Archiv
 [(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/rundgang-zu-gedenkorten-mit-stolpersteinen-fuer-opfer-des-nationalsozialismus-in-suederelbe/)
 
-**________________________________________________________________**
-
-
+* * *
 
 (Die Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
 
-Der Eintritt zu unseren Themenabenden bleibt frei - über Ihre Spenden freuen wir uns!
+Der Eintritt zu unseren Themenabenden und Rundgängen bleibt frei - über Ihre Spenden freuen wir uns!
 
 
 ## Aufruf
