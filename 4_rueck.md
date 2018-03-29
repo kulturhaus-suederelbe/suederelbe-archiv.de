@@ -7,7 +7,7 @@ Donnerstag, 22. März 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe
 
 Zu diesem Themenabend war bei uns Dr. Gisela Bertram, die Geschäftsführerin der Stiftung Ausgleich Altenwerder zu Gast.
 
-Etwa 25 interessierte Besucher hatten sich eingefunden, um dem fundierten und mit schönen Photoaufnahmen illustrierten Vortrag zu folgen. Im Anschluß ergab sich noch ein angeregten Austausch. Wir danken Frau Bertram für Ihren informativen Vortrag, der das Thema Altenwerder in den historischen Zusammenhang bettete und für die großzügige Spende für unsere Arbeit.
+Etwa 25 interessierte Besucher hatten sich eingefunden, um dem fundierten und mit tollen Aufnahmen - auch historischen - illustrierten Vortrag zu folgen. Im Anschluß ergab sich noch ein angeregter Austausch. Wir danken Frau Bertram für Ihre informativen Ausführungen, der das Thema Altenwerder in den historischen Zusammenhang bettete. Ein großes Dankeschön auch für ihre großzügige Spende für unsere Arbeit!
 
 ### Vierter Themenabend 2017 - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
 
