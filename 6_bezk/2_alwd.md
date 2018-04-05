@@ -30,4 +30,6 @@ ZDF Dokukanal 2006 - Altenwerder. Ein Dorf verschwindet (ab 5 min 9 sec)
 u.a. Interviews mit Elisabeth Schwartau, Christel Wulf und Hans Meyer jun.
 [ZDF-Doku](https://www.youtube.com/watch?v=o2uAL2pe3xk)
 
+[Altenwerder Sportverein - Geschichte Verein und Dorf](http://ftsv-altenwerder.de/index.php/verein2/geschichte/2015-01-18-20-51-59)
+
 ...
