@@ -26,4 +26,7 @@ Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 
 NDR 2011 - Das verschwundene Dorf 
 [NDR-Bericht mit Film](https://www.ndr.de/kultur/geschichte/schauplaetze/Das-verschwundene-Dorf,altenwerder101.html)
 
+ZDF Dokukanal 2006 - Altenwerder. Ein Dorf verschwindet (ab 5 min 9 sec)
+u.a. Interviews mit Elisabeth Schwartau, Christel Wulf und Hans Meyer jun.
+[ZDF-Doku](https://www.youtube.com/watch?v=o2uAL2pe3xk)
 
