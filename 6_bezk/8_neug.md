@@ -2,28 +2,26 @@
 
 ![](/img/wsb_180x81_500J_Neugraben.png)
 
-Neugraben-Jubiläumsbuch auch in 2017 weiter erhältlich!
+Neugraben-Jubiläumsbuch - auch 2018 gibt es noch restliche Exemplare!
 
 In einer Gerichtsakte aus dem Jahr 1553 wird erstmals der Name Gödeke
 Tiedemann erwähnt. Dieser erklärt darin, dass er seit 37 Jahren in
-Neugraben lebt.Daraus ergibt sich das Jahr 1516 als Beleg für eine
+Neugraben lebt. Daraus ergibt sich das Jahr 1516 als Beleg für eine
 dauerhafte Besiedelung im heutigen Neugraben.
 
 Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016
-erschienen und in der Bücherhalle Neugraben erhältlich. Sichern Sie sich
+erschienen. Es ist inzwischen noch über Bobeck Medienmanagement in Hamburg-Neugraben erhältlich. Sichern Sie sich
 Ihr Exemplar! Das Buch eignet sich auch sehr gut als Geschenk.**
 
 Am 21. Oktober 2016 fand eine Lesung von Auszügen
 aus dem Buch mit Uwe Michelau, einem der Autoren, im Kulturhaus
-Süderelbe statt. Am 18. Mai 2017 gab es einen weiteren Vorleseabend mit Ines Sulzbacher und Uwe Michelau.
+Süderelbe statt. Am 18. Mai 2017 gab es einen weiteren Vorleseabend mit Ines Sulzbacher - ebenfalls Autorin von Teilen des Buchs - und Uwe Michelau.
 
 ![](/img/Buchtitel_klein.png)
 
 500 Jahre Geschichte mit Höhen und Tiefen und mit vielen Geschichten. Das
-Buch wird von Süderelbe-Archiv herausgegeben. Sie erhalten es ab
-September zum Preis von 14,90 € im Buchhandel und in der Bücherhalle
-Neugraben. Sie können es aber schon jetzt vorbestellen. Senden Sie dazu
-eine [Mail an das
+Buch wird von Süderelbe-Archiv herausgegeben. Sie erhalten es zum Preis von EUR 14,90 €.
+Informationen können Sie erhalten über: [Mail an das
 Süderelbe-Archiv](mailto:info@suederelbe-archiv.de).
 
 ## Hier eine Leseprobe
