@@ -9,7 +9,7 @@ Tiedemann erwähnt. Dieser erklärt darin, dass er seit 37 Jahren in
 Neugraben lebt. Daraus ergibt sich das Jahr 1516 als Beleg für eine
 dauerhafte Besiedelung im heutigen Neugraben.
 
-Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016
+**Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016
 erschienen. Es ist inzwischen noch über Bobeck Medienmanagement in Hamburg-Neugraben erhältlich. Sichern Sie sich
 Ihr Exemplar! Das Buch eignet sich auch sehr gut als Geschenk.**
 
