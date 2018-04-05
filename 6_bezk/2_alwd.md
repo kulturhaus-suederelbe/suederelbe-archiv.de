@@ -12,7 +12,7 @@ a + b, Schrank 1) - Kapitel zu Altenwerder
 
 Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 1)
 
-Gustav Wülfken, So schön war Altenwerder, Hambuarg-Neugraben: Verlag Uwe Herbst, 1989 ( ... )
+Gustav Wülfken (1989), So schön war Altenwerder, Hamburg-Neugraben: Verlag Uwe Herbst (Signatur ...)
 
 
 
