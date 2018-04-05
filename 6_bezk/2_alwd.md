@@ -14,4 +14,5 @@ Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 
 
 ## Weblinks zu Altenwerder
 [Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Altenwerder)
-[Stiftung Ausgleich Altenwerder] (http://stiftung-ausgleich-altenwerder.de)
+
+[Stiftung Ausgleich Altenwerder](http://stiftung-ausgleich-altenwerder.de)
