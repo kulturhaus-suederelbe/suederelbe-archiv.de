@@ -12,6 +12,9 @@ a + b, Schrank 1) - Kapitel zu Altenwerder
 
 Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 1)
 
+Gustav Wülfken, So schön war Altenwerder, Hambuarg-Neugraben: Verlag Uwe Herbst, 1989 ( ... )
+
+
 
 
 
@@ -31,6 +34,6 @@ u.a. Interviews mit Elisabeth Schwartau, Christel Wulf und Hans Meyer jun.
 [ZDF-Doku](https://www.youtube.com/watch?v=o2uAL2pe3xk)
 
 [Altenwerder Sportverein - Geschichte Verein und Dorf](http://ftsv-altenwerder.de/index.php/verein2/geschichte/2015-01-18-20-51-59)
-Web-Auftritt des Altenwerder Sportvereins mit ausführlichen Texten und Photos zur älteren und jüngeren Geschichte Altenwerders.
+Web-Auftritt des Altenwerder Sportvereins mit Texten, Abbildungen und Photos zur älteren und jüngeren Geschichte Altenwerders.
 
 
