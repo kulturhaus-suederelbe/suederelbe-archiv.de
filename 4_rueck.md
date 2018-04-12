@@ -20,6 +20,8 @@ Datum / Uhrzeit: Donnerstag, 16. November 2017, 19:30 Uhr
 
 Ort: Stadtteilsaal im BGZ Süderelbe
 
+Einladung (PDF) - ...
+
 Im Februar 2005 erschien die erweiterte Ausgabe des Buchs *„die anderen. Widerstand und Verfolgung in Harburg und Wilhelmsburg. 
 Zeugnisse und Berichte 1933 - 1945.”* Die Autoren hatten damals umfangreiche Archivrecherchen vorgenommen und konnten sicher sein, 
 den Gegenstand im Wesentlichen erfasst zu haben… aber natürlich sind seitdem wichtige Details neu erforscht und wichtige 
