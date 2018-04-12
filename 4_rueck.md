@@ -3,6 +3,7 @@
 ### Erster Themenabend 2018 - Altenwerder - Verlust einer Kulturlandschaft mit Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder  
 
 Datum / Uhrzeit: Donnerstag, 22. März 2018 um 19:30 Uhr
+
 Ort: Stadtteilsaal des BGZ Süderelbe
 
 [Einladung (PDF)](img/2018_03_22_Einladung_Themenabend_Stiftung_Ausgleich_Altenwerder.pdf),
