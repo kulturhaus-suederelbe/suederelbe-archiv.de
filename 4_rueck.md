@@ -2,7 +2,9 @@
 
 ### Erster Themenabend 2018 - Altenwerder - Verlust einer Kulturlandschaft mit Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder  
 
-Donnerstag, 22. März 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe  
+Datum / Uhrzeit: Donnerstag, 22. März 2018 um 19:30 Uhr
+Ort: Stadtteilsaal des BGZ Süderelbe
+
 [Einladung (PDF)](img/2018_03_22_Einladung_Themenabend_Stiftung_Ausgleich_Altenwerder.pdf),
  weitere Informationen auf der Website der [Stiftung Ausgleich Altenwerder](http://stiftung-ausgleich-altenwerder.de/)
 
@@ -13,7 +15,7 @@ Etwa 25 interessierte Besucher hatten sich eingefunden, um dem fundierten und ei
 
 ### Vierter Themenabend 2017 - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
 
-Donnerstag, 16. November 2017, 19:30 Uhr
+Datum / Uhrzeit: Donnerstag, 16. November 2017, 19:30 Uhr
 
 Ort: Stadtteilsaal im BGZ Süderelbe
 
