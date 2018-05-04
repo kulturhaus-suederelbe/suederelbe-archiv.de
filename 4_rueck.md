@@ -1,5 +1,20 @@
 # Veranstaltungsarchiv
 
+
+
+Am Sonntag, 15. April 2018   11:00 - 12:00 Uhr:
+## Rundgang über das Lagergelände des ehemaligen Konzentrationslagers am Falkenbergsweg
+Treffpunkt: 11:00 Uhr Bushaltestelle Neugrabener Heideweg
+
+Veranstalter: KZ-Gedenkstätte Neuengamme, Süderelbe-Archiv,
+Referent: Karl-Heinz Schultz, Initiative Gedenken in Harburg
+[(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/spaziergang-in-die-vergangenheit/)
+
+An dem mittlerweile traditionellen Rundgang nahmen insgesamt 11 Personen teil - vielen Dank! Auch wenn die Zahl gering erscheinen mag, so ist doch das gesetzte Zeichen wichtig, trotz des nassen und kühlen Wetters der Toten und Überlebenden gedacht zu haben.
+
+* * *
+
+
 ### Erster Themenabend 2018 - Altenwerder - Verlust einer Kulturlandschaft mit Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder  
 
 Datum / Uhrzeit: Donnerstag, 22. März 2018 um 19:30 Uhr
