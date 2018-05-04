@@ -19,16 +19,6 @@ bei Ihrer Recherche.
 
 * * *
 
-Am Sonntag, 15. April 2018   11:00 - 12:00 Uhr:
-## Rundgang über das Lagergelände des ehemaligen Konzentrationslagers am Falkenbergsweg
-Treffpunkt: 11:00 Uhr Bushaltestelle Neugrabener Heideweg
-
-Veranstalter: KZ-Gedenkstätte Neuengamme, Süderelbe-Archiv,
-Referent: Karl-Heinz Schultz, Initiative Gedenken in Harburg
-[(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/spaziergang-in-die-vergangenheit/)
-
-* * *
-
 
 Am Sonnabend 16. Juni 2018  15:00 – 16:30 Uhr:
 ## Rundgang zu Gedenkorten mit Stolpersteinen für Opfer des Nationalsozialismus in Süderelbe
