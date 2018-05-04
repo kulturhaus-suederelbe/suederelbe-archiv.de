@@ -20,6 +20,16 @@ bei Ihrer Recherche.
 * * *
 
 
+Am Sonnabend 26. Mai 2018, 14:30 - 16:00 Uhr:
+## Rundgang durch den Dorfkern Neugraben
+Treffpunkt: 14:30 Uhr Vorplatz BGZ Süderelbe / Nordausgang P+R-Haus S-Neugraben
+Um Anmeldung wird gebeten unter info@suederelbe-archiv.de - Teilnehmer max. 25 Personen (noch 12 freie Plätze).
+Rundgang zu markanten Punkten im Neugrabener Dorf und an der Francoper Straße mit Mitgliedern des Süderelbe-Archivs.
+
+
+* * *
+
+
 Am Sonnabend 16. Juni 2018  15:00 – 16:30 Uhr:
 ## Rundgang zu Gedenkorten mit Stolpersteinen für Opfer des Nationalsozialismus in Süderelbe
 Treffpunkt: 15:00 Uhr Bushaltestelle Neugrabener Heideweg
