@@ -10,7 +10,7 @@ Veranstalter: KZ-Gedenkstätte Neuengamme, Süderelbe-Archiv,
 Referent: Karl-Heinz Schultz, Initiative Gedenken in Harburg
 [(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/spaziergang-in-die-vergangenheit/)
 
-An dem mittlerweile traditionellen Rundgang nahmen insgesamt 11 Personen teil - vielen Dank! Auch wenn die Zahl gering erscheinen mag, so ist doch das gesetzte Zeichen wichtig, trotz des nassen und kühlen Wetters der Toten und Überlebenden gedacht zu haben.
+An dem mittlerweile traditionellen Rundgang nahmen insgesamt 11 Personen teil - vielen Dank! Auch wenn die Zahl gering erscheinen mag, so ist doch das gesetzte Zeichen wichtig, trotz oder gerade wegen des nassen und kühlen Wetters der Toten und Überlebenden gedacht zu haben.
 
 * * *
 
