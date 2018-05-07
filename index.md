@@ -21,7 +21,7 @@ bei Ihrer Recherche.
 
 
 Am Sonnabend 26. Mai 2018, 14:30 - 16:00 Uhr:
-## Rundgang durch den Dorfkern Neugraben
+## Rundgang durch den alten Dorfkern Neugrabens
 
 Auch 2018 bieten wir wieder einen Rundgang durch das alte Neugrabener Dorf an. Mitglieder des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Punkten in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 Treffpunkt: 14:30 Uhr Vorplatz BGZ Süderelbe / Nordausgang P+R-Haus S-Neugraben.
