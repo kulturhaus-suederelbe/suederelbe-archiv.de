@@ -26,7 +26,7 @@ Am Sonnabend 26. Mai 2018, 14:30 - 16:00 Uhr:
 Auch 2018 bieten wir wieder einen Rundgang durch das alte Neugrabener Dorf an. Mitglieder des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Punkten in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
 Treffpunkt: 14:30 Uhr Vorplatz BGZ Süderelbe / Nordausgang P+R-Haus S-Neugraben.
 
-Bitte unbedingt anmelden unter info@suederelbe-archiv.de - Die Teilnehmerzahl ist begrenzt auf 24 Personen Es gibt noch freie Plätze!
+Bitte unbedingt anmelden unter info@suederelbe-archiv.de - die Teilnehmerzahl ist begrenzt auf 24 Personen. Es gibt noch freie Plätze!
 
 Der Rundgang ist kostenfrei, über Spenden freuen wir uns!
 
