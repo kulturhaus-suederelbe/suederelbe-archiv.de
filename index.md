@@ -12,20 +12,24 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Nächster *Offener Treffpunkt* in der Bücherhalle Neugraben
 
-Sonnabend, 5. Mai 2018, von 10:00 bis 12:00 Uhr
+Sonnabend, 2. Juni 2018, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche.
 
 * * *
 
-Am Sonntag, 15. April 2018   11:00 - 12:00 Uhr:
-## Rundgang über das Lagergelände des ehemaligen Konzentrationslagers am Falkenbergsweg
-Treffpunkt: 11:00 Uhr Bushaltestelle Neugrabener Heideweg
 
-Veranstalter: KZ-Gedenkstätte Neuengamme, Süderelbe-Archiv,
-Referent: Karl-Heinz Schultz, Initiative Gedenken in Harburg
-[(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/spaziergang-in-die-vergangenheit/)
+Am Sonnabend 26. Mai 2018, 14:30 - 16:00 Uhr:
+## Rundgang durch den alten Dorfkern Neugrabens
+
+Auch 2018 bieten wir wieder einen Rundgang durch das alte Neugrabener Dorf an. Mitglieder des Süderelbe-Archivs führen die TeilnehmerInnen zu markanten Punkten in einem der am besten erhaltenen Dorfkerne auf Hamburger Stadtgebiet.
+Treffpunkt: 14:30 Uhr Vorplatz BGZ Süderelbe / Nordausgang P+R-Haus S-Neugraben.
+
+Bitte unbedingt anmelden unter info@suederelbe-archiv.de - die Teilnehmerzahl ist begrenzt auf 24 Personen. Es gibt noch freie Plätze!
+
+Der Rundgang ist kostenfrei, über Spenden freuen wir uns!
+
 
 * * *
 
