@@ -49,7 +49,7 @@ ReferentInnen: Karl-Heinz Schultz, Initiative Gedenken in Harburg; Stephan Kaise
 Der Eintritt zu unseren Themenabenden und Rundgängen bleibt frei - über Ihre Spenden freuen wir uns!
 
 
-## Aufruf
+## Aufruf - Ihre Dokumente, Ihre Geschichte
 
 Wir sammeln und archivieren historische Fotos, Karten, Bücher, Zeitungen
 und Berichte von Zeitzeugen aus den Ortsteilen Altenwerder, Cranz,
