@@ -49,33 +49,29 @@ ReferentInnen: Karl-Heinz Schultz, Initiative Gedenken in Harburg; Stephan Kaise
 Der Eintritt zu unseren Themenabenden und Rundgängen bleibt frei - über Ihre Spenden freuen wir uns!
 
 
-## Aufruf
-
-Nach wie vor aktuell: **Glasplattennegative** (aus etwa den Jahren 1870
-bis 1940) müssen wegen ihres drohenden Verfalls jetzt digitalisiert werden.
-Haben Sie solche Negative bei sich zu Hause? Kommen Sie zu einem unserer
-Offenen Treffpunkte und informieren Sie sich.
+## Aufruf - Ihre Dokumente, Ihre Geschichte
 
 Wir sammeln und archivieren historische Fotos, Karten, Bücher, Zeitungen
 und Berichte von Zeitzeugen aus den Ortsteilen Altenwerder, Cranz,
 Hausbruch, Francop, Neuenfelde, Neugraben-Fischbek und Moorburg des
 Süderelbegebietes.
 
-Kennen Sie Zeitzeugen oder sind Sie selbst Zeitzeuge, der oder die für Interviews zur
-jüngeren deutschen, vor allem der regionalen Geschichte der
-Süderelberegion zur Verfügung stehen?
+Kennen Sie Zeitzeugen (oder sind Sie selbst Zeitzeuge oder Zeitzeugin) die für die
+Aufzeichnung von Gesprächen zur regionalen Geschichte der Süderelberegion zur Verfügung 
+stehen?
 
-Besitzen Sie Dokumente oder Gegenstände - aus der eigenen Familie oder
+Besitzen Sie Dokumente oder Gegenstände - aus der eigenen Familie oder aus
 einem aktuellen Nachlass, die Aufschlüsse zur Geschichte der Süderelberegion
 geben können?
 
 Von besonderem Interesse für uns sind die Zeit zwischen beiden
-Weltkriegen, die NS-Zeit 1933-1945, Kriegs- und Nachkriegszeit sowie im
-Hinblick auf das Jubiläum 500 Jahre Neugraben im Jahr 2016 die
-Entwicklung Neugrabens vom Dorf zum urbanisierten Vorort Hamburgs.
+Weltkriegen, die NS-Zeit 1933-1945, Kriegs- und Nachkriegszeit sowie die
+Entwicklung Neugrabens und seiner Nachbardörfer zum urbanisierten Vorort Hamburgs.
+
 Kontaktieren Sie uns gern per [E-Mail](mailto:info@suederelbe-archiv.de)
 und machen Sie einen Termin aus - oder kommen Sie zu unseren Offenen
 Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
+
 
 ## Dia-Schau in der Bücherhalle Neugraben
 
