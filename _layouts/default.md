@@ -11,7 +11,7 @@
   {{ content }}
 <footer>
 <hr>
-<a href="/9_impr.html">Impressum</a>
+<a href="/9_impr.html">Impressum und Datenschutzerklärung</a>
 </footer>
 </div>
 
