@@ -1,4 +1,4 @@
-# Impressum
+# Impressum und Datenschutzerklärung
 
 ## Süderelbe-Archiv
 
@@ -33,8 +33,6 @@ erheben weder Anspruch auf Vollständigkeit, noch auf Richtigkeit.
 
 Als Arbeitsgruppe des Kulturhauses Süderelbe verweisen wir auf das [Impressum des
 Kulturhauses Süderelbe e.V.](http://kulturhaus-suederelbe.de/Impressum.html)
-
-# Datenschutzerklärung
 
 ## Datenschutz
 
