@@ -28,6 +28,8 @@ Treffpunkt: 14:30 Uhr Vorplatz BGZ Süderelbe / Nordausgang P+R-Haus S-Neugraben
 
 Bitte unbedingt anmelden unter info@suederelbe-archiv.de - die Teilnehmerzahl ist begrenzt auf 24 Personen. Es gibt noch freie Plätze!
 
+<font color="red">Der Rundgang ist nun (Sa, 19.5.2018) ausgebucht! Vielen Dank für Ihr großes Interesse!</font>
+
 Der Rundgang ist kostenfrei, über Spenden freuen wir uns!
 
 
