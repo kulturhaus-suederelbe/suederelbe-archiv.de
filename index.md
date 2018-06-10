@@ -19,7 +19,7 @@ bei Ihrer Recherche.
 
 * * *
 
-(...)
+Exkursion Altes Land
 
 
 * * *
