@@ -1,20 +1,21 @@
 # Altenwerder
 
-Zur Geschichte Altenwerders stehen im Archiv folgende Titel zur
-Verfügung (Auswahl):
+Altenwerder (ndd. *Oolwarder*) - von dem ehemaligen Bauern- und Fischerdorf existieren heute nur noch die Kirche sowie Reste der Straßen Altenwerder Kirchweg und Altenwerder Querweg in einem Grünstreifen unmittelbar um die Kirche herum. Zur Kirche führt heute (2018) die neu angelegte Straße "Im Altenwerder Kirchtal".
 
-Theodor Benecke (1919), Geschichtliche Nachrichten über Moorburg,
-Finkenwärder, Altenwerder, Lauenbruch usw. (Signatur AB0179 a + b,
+Ein weiteres Relikt des Dorfes sind Mobiliar und Inhalt des Einzelhandelsgeschäftes von Magdalene Dufke geb. Rübke. Der Laden wurde in seinem damaligen Zustand 1979 vom Altonaer Museum erworben und inventarisiert. Seit 1991 wird er als "Dufke-Laden" in der Dauerausstellung des Museums präsentiert.
+
+Zur Geschichte Altenwerders stehen im Archiv folgende Titel zur Verfügung (Auswahl):
+
+Theodor Benecke (1919), Geschichtliche Nachrichten über Moorburg, Finkenwärder, Altenwerder, Lauenbruch usw. (Signatur AB0179 a + b,
 Schrank 2)
 
-Broockmann/Zapf (1996), Süderelbe. Region der Gegensätze (Signatur B0006
-a + b, Schrank 1) - Kapitel zu Altenwerder
+Broockmann/Zapf (1996), Süderelbe. Region der Gegensätze (Signatur B0006 a + b, Schrank 1) - Kapitel zu Altenwerder
 
 Eberhard Postel, Landarzt in Altenwerder. Erinnerungen (Signatur B0033, Schrank 1)
 
 Gustav Wülfken (1989), So schön war Altenwerder, Hamburg-Neugraben: Verlag Uwe Herbst (Signatur ...)
 
-
+Torkild Hinrichsen, Dufke-Laden. Ein ländliches Gemischtwarengeschäft aus Altenwerder. Sammlungen des Altonaer Museums in Hamburg, Heft 14, 1991.
 
 
 
