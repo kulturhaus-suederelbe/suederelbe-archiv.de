@@ -17,12 +17,10 @@ Sonnabend, 7. Juli 2018, von 10:00 bis 12:00 Uhr
 Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
 bei Ihrer Recherche.
 
-* * *
-
-Exkursion Altes Land
 
 
 * * *
+
 
 
 Am Sonnabend 16. Juni 2018  15:00 – 16:30 Uhr:
