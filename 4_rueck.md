@@ -1,6 +1,13 @@
 # Veranstaltungsarchiv
 
 
+
+**Exkursion Altes Land**
+
+Am Donnerstag, 14. Juni 2018, nahmen die Arbeitsgruppe des Süderelbe-Archivs sowie einige Personen aus unserm Interessentenkreis an einer geführten Exkursion in den Hamburger Teil der Dritten Meile des Alten Landes teil.
+Von Neuenfelde aus, wo wir die St.-Pankratius-Kirche besichtigten und eine Einführung in die Thematik Altes Land bekamen, ging es nach Estebrügge. Stationen waren zunächst der Mittagstisch in der Oolen Sporkass mit Original Altländer Hochzeitssuppe, dann die St.-Martini-Kirche und als Abschluss das kleine, aber sehr feine Museum Estebrügge, das aus einer Privatsammlung hervorgegangen ist. Über Cranz ging es dann wieder nach Neuenfelde.
+
+
 ***
 
 Am Sonnabend 26. Mai 2018 fand von 14:30 bis 16:30 Uhr zum bereits vierten Mal unser
