@@ -21,12 +21,13 @@ bei Ihrer Recherche.
 
 * * *
 
-##Themenabende##
+## Themenabende
 
+Unser nächster Themenabend findet im Oktober 2018 statt und wird die Geschäftswelt in Neugraben im Zeitrahmen von etwa 1945 bis 1980 behandeln.
 
 (Die Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
 
-Der Eintritt zu unseren Themenabenden und Rundgängen bleibt frei - über Ihre Spenden freuen wir uns!
+Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spenden freuen wir uns!
 
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
