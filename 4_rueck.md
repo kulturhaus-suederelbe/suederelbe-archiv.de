@@ -46,7 +46,7 @@ An dem mittlerweile traditionellen Rundgang nahmen insgesamt 11 Personen teil - 
 * * *
 
 
-### Erster Themenabend 2018 - Altenwerder - Verlust einer Kulturlandschaft mit Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder  
+## Erster Themenabend 2018 - Altenwerder - Verlust einer Kulturlandschaft mit Dr. Gisela Bertram, Geschäftsführerin der Stiftung Ausgleich Altenwerder  
 
 Datum / Uhrzeit: Donnerstag, 22. März 2018 um 19:30 Uhr
 
@@ -60,7 +60,7 @@ Zu diesem Themenabend war bei uns Dr. Gisela Bertram, die Geschäftsführerin de
 Etwa 25 interessierte Besucher hatten sich eingefunden, um dem fundierten und eindrucksvoll illustrierten Vortrag der Referentin zu folgen. Besonders interessant waren vor allem die zahlreichen Luftaufnahmen. Im Anschluß ergab sich ein angeregter Austausch. Wir danken Frau Bertram für Ihre informativen Ausführungen, die das Thema Altenwerder in seinen geographisch-historischen Kontext betteten. Ein großes Dankeschön auch für die großzügige Spende für unsere Arbeit!
 
 
-### Vierter Themenabend 2017 - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
+## Vierter Themenabend 2017 - Widerstand und Verfolgung in Harburg und Wilhelmsburg. Zeugnisse und Berichte 1933 - 1945 mit Dr. Christian Gotthardt, Harburg
 
 Datum / Uhrzeit: Donnerstag, 16. November 2017, 19:30 Uhr
 
