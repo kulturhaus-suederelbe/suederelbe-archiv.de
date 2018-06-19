@@ -11,7 +11,7 @@ Als Veranstalter hatten die Initiative Gedenken in Harburg und das Süderelbe-Ar
 
 * * *
 
-## Exkursion Altes Land
+## Exkursion in den Hamburger Teil der Dritten Meile Altes Land
 
 Am Donnerstag, 14. Juni 2018, nahm ein guter Teil der Arbeitsgruppe des Süderelbe-Archivs sowie einige Personen aus unserem Interessentenkreis an einer geführten Exkursion in den Hamburger Teil der Dritten Meile des Alten Landes teil.
 Von Neuenfelde aus, wo wir die St.-Pankratius-Kirche besichtigten und eine Einführung in die Thematik Altes Land erhielten, ging es über kurze Stationen am Neuenfelder Hafen und dem Orgelbauerhof nach Estebrügge. Nach dem Mittagstisch in der Oolen Sporkass mit Original Altländer Hochzeitssuppe folgte der Besuch der St.-Martini-Kirche, zu deren Kirchspiel Cranz gehört, und als Abschluss das kleine, aber sehr feine Museum Estebrügge, das aus einer Privatsammlung hervorgegangen ist. Über Cranz ging es dann wieder nach Neuenfelde zurück und von da nach Neugraben.
