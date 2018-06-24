@@ -18,4 +18,4 @@ Monika Genz (Hg.), *Der Baum Neuenfelde*, 2010.
 
 [Verein 900 Jahre Neuenfelde e.V.](http://900jahreneuenfelde.de/) (Link hinzugefügt am 24.6.2018)
 
-[Kirche Neuenfelde](https://kirchesuederelbe.de/neuenfelde/) (Link hinzugefügt am 24.6.2018)
+[Kirche St. Pankratius Neuenfelde](https://kirchesuederelbe.de/neuenfelde/) (Link hinzugefügt am 24.6.2018)
