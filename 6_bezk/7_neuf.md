@@ -3,11 +3,19 @@
 Neuenfelde (ndd. *Neefeld*) blickt auf eine inzwischen mehr als 950jährige Geschichte
 zurück.
 
-Das heutige Neuenfelde geht zurück auf die Dörfer Saschfeld und Niefeld
+Das heutige Neuenfelde geht zurück auf die Dörfer Saschfeld (,Feld der Sachsen') und Niefeld
 auf der ehemaligen Elbinsel Hasselwerder, als *Haslewarther* erstmals in
 einer Urkunde von 1059 erwähnt.
 
 Die Gemeinden Hasselwerder und Nincop wurden im Jahr 1929 zu Neuenfelde zusammengefügt.
 
+# Literatur zu Neuenfelde
+
+Monika Genz (Hg.), *Der Baum Neuenfelde*, 2010.
+
 ## Weblinks zu Neuenfelde
-[Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neuenfelde)
+[Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neuenfelde) (Link hinzugefügt am 24.6.2018)
+
+[Verein 900 Jahre Neuenfelde e.V.](http://900jahreneuenfelde.de/) (Link hinzugefügt am 24.6.2018)
+
+[Kirche Neuenfelde](https://kirchesuederelbe.de/neuenfelde/) (Link hinzugefügt am 24.6.2018)
