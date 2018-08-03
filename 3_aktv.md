@@ -14,7 +14,7 @@ einem Arbeitstreffen, um Gedanken auszutauschen und Aktivitäten zu
 besprechen. Die Geschichtsgruppe ist offen für alle an der Ortsgeschichte
 Interessierten.
 
-Arbeitsgruppen-Termine bis Sommer 2018: 11. Januar, 8. Februar, 8. März, 12. April, 17. Mai, 14. Juni, 12. Juli
+Arbeitsgruppen-Termine im zweiten Halbjahr 2018: 13. September, 11. Oktober, 8. November, 13. Dezember.
 
 ## Offener Treffpunkt
 
@@ -23,7 +23,7 @@ Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der
 Bücherhalle ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu
 geben.
 
-Offener Treffpunkt bis Sommer 2018: 6. Januar, 3. Februar, 3. März, 7. April, 5. Mai, 2. Juni, 7. Juli
+Offener Treffpunkt im zweiten Halbjahr 2018: 1. September, 6. Oktober, 3. November, 1. Dezember.
 
 ## Themenabende
 
