@@ -23,7 +23,7 @@ bei Ihrer Recherche.
 
 ## Themenabende
 
-Unser nächster Themenabend findet im Oktober 2018 statt und wird die Geschäftswelt in Süderelbe mit dem Schwerpunkt Neugraben-Fischbek im Zeitrahmen von der Vorkriegszeit (Bestand 1938) bis in die 1970er behandeln.
+Unser nächster Themenabend findet im Oktober 2018 statt und wird die Geschäftswelt in Süderelbe mit dem Schwerpunkt Neugraben-Fischbek behandeln. Der Bogen spannt sich von der unmittelbaren Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
 
 (Die Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
 
