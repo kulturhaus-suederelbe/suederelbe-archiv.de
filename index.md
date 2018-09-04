@@ -22,7 +22,7 @@ Sie finden uns auf dem Stand des Kulturhauses Süderelbe.
 
 ## Themenabende
 
-### <font color="fuchsia">Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region</font>
+**Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region**
 
 Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
 
@@ -38,7 +38,7 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 
 ## How high the moon – Swingjugend in Wilhelmsburg
 
-![](/img/KlotzQuintet_B&W)
+![](/img/KlotzQuintet_B&W.jpg)
 Bild: Klotzquintett
 
 
@@ -46,8 +46,13 @@ Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **
 Es spielt das Klotz-Quintett.
 
 
-Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig am Jackenaufschlag mit zerkratztem Hakenkreuz. Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements Jazzstandards aus der damaligen Zeit. 
-Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.  
+Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. 
+Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig am Jackenaufschlag mit zerkratztem Hakenkreuz. 
+Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements 
+Jazzstandards aus der damaligen Zeit.  
+Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
+
+
 **Eintritt: 8.- €  
 Ort: Michaelis-Kirche, Cuxhavener Straße 323**
 
