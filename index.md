@@ -20,7 +20,8 @@ Sie finden uns auf dem Stand des Kulturhauses Süderelbe.
 
 ## Themenabende
 
-### Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region -**
+### Von der Selbstversorgung zum Supermarkt 
+### - Die  Geschäftswelt in der Süderelbe-Region -
 
 Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
 
@@ -36,8 +37,8 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 
 ## How high the moon – Swingjugend in Wilhelmsburg
 
-Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben.
-### Es spielt das Klotz-Quintett.
+Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein 
+Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. **Es spielt das Klotz-Quintett.**
 ![](/img/KlotzQuintet_B&W.jpg)  
 Bild: Klotzquintett
 
@@ -52,7 +53,7 @@ Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennig
 
 
 **Eintritt: 8.- €  
-Ort: Michaelis-Kirche, Cuxhavener Straße 323**
+Ort: Michaelis-Kirche, Cuxhavener Straße 323**  
 [(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/harburger-gedenktage-2018/)
 
 * * *
