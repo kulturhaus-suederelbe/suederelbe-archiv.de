@@ -10,12 +10,11 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ## Aktuelles
 
-### Nächster *Offener Treffpunkt* in der Bücherhalle Neugraben
+### Neugraben Erleben
 
-Sonnabend, 1. September 2018, von 10:00 bis 12:00 Uhr
+Sonntag, 9. September 2018, von 11:00 bis 17:00 Uhr
 
-Mitglieder des Süderelbe-Archivs beantworten Fragen und unterstützen Sie
-bei Ihrer Recherche.
+Sie finden uns auf dem Stand des Kulturhauses Süderelbe.
 
 
 
@@ -23,14 +22,37 @@ bei Ihrer Recherche.
 
 ## Themenabende
 
-<font color="fuchsia">Geschäftswelt Süderelbe</font>
+### <font color="fuchsia">Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region</font>
 
-Unser nächster Themenabend findet im Oktober 2018 statt und wird die Geschäftswelt in Süderelbe mit dem Schwerpunkt Neugraben-Fischbek behandeln. Der Bogen spannt sich von der unmittelbaren Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
+Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
 
-(Die Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
+Der Vortrag gibt einen Überblick über die „Blütezeit“ der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
+mit dem Schwerpunkt Neugraben-Fischbek. 
+Der Bogen spannt sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre..
+
+(Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
 
 Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spenden freuen wir uns!
 
+* * *
+
+## How high the moon – Swingjugend in Wilhelmsburg
+
+![](/img/KlotzQuintet_B&W)
+Bild: Klotzquintett
+
+
+Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben.
+Es spielt das Klotz-Quintett.
+
+
+Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig am Jackenaufschlag mit zerkratztem Hakenkreuz. Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements Jazzstandards aus der damaligen Zeit. 
+Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.  
+**Eintritt: 8.- €  
+Ort: Michaelis-Kirche, Cuxhavener Straße 323**
+
+
+* * *
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
 
