@@ -20,8 +20,7 @@ Sie finden uns auf dem Stand des Kulturhauses Süderelbe.
 
 ## Themenabende
 
-**Von der Selbstversorgung zum Supermarkt  
-- Die  Geschäftswelt in der Süderelbe-Region -**  
+### Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region -**
 
 Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
 
@@ -38,21 +37,23 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 ## How high the moon – Swingjugend in Wilhelmsburg
 
 Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben.
-Es spielt das Klotz-Quintett.
-![](/img/KlotzQuintet_B&W.jpg)..
+### Es spielt das Klotz-Quintett.
+![](/img/KlotzQuintet_B&W.jpg)  
 Bild: Klotzquintett
 
 
 Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. 
 Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig am Jackenaufschlag mit zerkratztem Hakenkreuz. 
 Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements 
-Jazzstandards aus der damaligen Zeit.  
+Jazzstandards aus der damaligen Zeit.
+
+
 Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
 
 
 **Eintritt: 8.- €  
 Ort: Michaelis-Kirche, Cuxhavener Straße 323**
-
+[(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/harburger-gedenktage-2018/)
 
 * * *
 
@@ -82,5 +83,6 @@ Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
 
 ## Dia-Schau in der Bücherhalle Neugraben
 
-In der Archiv-Ecke der Bücherhalle laufen auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe. Die Öffnungszeiten der Bücherhalle finden Sie
+In der Archiv-Ecke der Bücherhalle laufen auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe.
+ Die Öffnungszeiten der Bücherhalle finden Sie
 [hier](https://www.buecherhallen.de/neugraben).
