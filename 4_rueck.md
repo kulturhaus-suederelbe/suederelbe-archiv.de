@@ -4,7 +4,7 @@
 ## Neugraben Erleben
 Am So, 9. September 2018, waren Mitglieder des Süderelbe-Archivs von 11:00 bis 16:00 Uhr am Stand des Kulturhauses präsent. Diverse Besucher/innen sprachen uns zu unserem Themenabend ,Geschäftswelt in Süderelbe' an und teilten uns ihre Erinnerungen mit. Vielen Dank!
 
-...
+* * *
 
 
 Am Sonnabend 16. Juni 2018 von 15:00 – 16:30 Uhr fand wieder ein
