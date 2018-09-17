@@ -56,8 +56,7 @@ Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennig
 
 **Eintritt: 8.- €  
 Ort: Michaelis-Kirche, Cuxhavener Straße 323**  
-[(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/harburger-gedenktage-2018/)
-
+[(Programmübersicht - Harburger Gedenktage 2018)](http://gedenken-in-harburg.de/fileadmin/user_upload/3324-leporello-gedenktage-web.pdf)
 * * *
 
 ## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
