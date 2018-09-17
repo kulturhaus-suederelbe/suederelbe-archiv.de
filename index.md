@@ -22,8 +22,12 @@ Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstü
 ### Von der Selbstversorgung zum Supermarkt 
 ### - Die  Geschäftswelt in der Süderelbe-Region -
 
-Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
-![](/img/tmp//Milchwerbung_Klein.jpg)  
+Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2
+
+
+![](/img/tmp//Milchwerbung_Klein.jpg)
+
+
 Der Vortrag gibt einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
 mit dem Schwerpunkt Neugraben-Fischbek. 
 Der Bogen spannt sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
@@ -38,7 +42,7 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 
 Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein 
 Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. **Es spielt das Klotz-Quintett.**
-![](/img/tmp/KlotzQuintet_B&W.jpg)  
+![](/img/tmp/KlotzQuintet_B&W.jpg)
 Bild: Klotzquintett
 
 
@@ -58,8 +62,8 @@ Ort: Michaelis-Kirche, Cuxhavener Straße 323**
 
 ## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
 
-Vortrag im Rahmen der Harburger Gedenktagen 2018 am **15. November 2018** im **BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal**
-Am Johannisland 2
+Vortrag im Rahmen der Harburger Gedenktagen 2018 am **15. November 2018** im **BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, 
+Am Johannisland 2**
 
 Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft 
 zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. 
@@ -74,7 +78,7 @@ geb. 1943, Historiker, 2007 Abschluss eines Forschungsvorhabens „Jüdische Jug
 ![](/img/tmp/Bauplan Schalom-Haus.jpg)
 Bauplan Schalom-Haus
 
-Der Eintritt ist frei, Spenden sind willkommen
+**Der Eintritt ist frei, Spenden sind willkommen**
 * * *
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
