@@ -42,7 +42,7 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 
 Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein 
 Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. **Es spielt das Klotz-Quintett.**
-![](/img/tmp/KlotzQuintet_B&W.jpg)
+![](/img/tmp/KlotzQuintet_B&W.jpg)  
 Bild: Klotzquintett
 
 
