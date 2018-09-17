@@ -55,7 +55,9 @@ Jazzstandards aus der damaligen Zeit.
 Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
 
 **Eintritt: 8.- €  
-Ort: Michaelis-Kirche, Cuxhavener Straße 323**  
+Ort: Michaelis-Kirche, Cuxhavener Straße 323**
+
+
 [(Programmübersicht - Harburger Gedenktage 2018)](http://gedenken-in-harburg.de/fileadmin/user_upload/3324-leporello-gedenktage-web.pdf)
 * * *
 
