@@ -4,11 +4,10 @@ title: Aktuell
 
 # Aktuelles aus dem Süderelbe-Archiv
 
-Herzlich willkommen auf unseren Seiten! Wir arbeiten laufend an der
-Aktualisierung. Für Fragen und Anregungen erreichen Sie uns unter der
+Herzlich willkommen auf unseren Seiten! Für Fragen und Anregungen erreichen Sie uns unter der
 E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
-## Aktuelles
+* * *
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
@@ -18,14 +17,14 @@ Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstü
 
 * * *
 
-## Themenabende
+## Themenabend
 
 ### Von der Selbstversorgung zum Supermarkt 
 ### - Die  Geschäftswelt in der Süderelbe-Region -
 
 Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2  
-
-Der Vortrag gibt einen Überblick über die „Blütezeit“ der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
+![](/img/tmp//Milchwerbung_Klein.jpg)  
+Der Vortrag gibt einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
 mit dem Schwerpunkt Neugraben-Fischbek. 
 Der Bogen spannt sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
 
@@ -39,7 +38,7 @@ Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spen
 
 Im Rahmen der Harburger Gedenktage 2018 veranstaltet das Süderelbe-Archiv am **3. November um 19.00 Uhr** ein 
 Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. **Es spielt das Klotz-Quintett.**
-![](/img/KlotzQuintet_B&W.jpg)  
+![](/img/tmp/KlotzQuintet_B&W.jpg)  
 Bild: Klotzquintett
 
 
@@ -51,11 +50,31 @@ Jazzstandards aus der damaligen Zeit.
 
 Das Süderelbe-Archiv erinnert an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
 
-
 **Eintritt: 8.- €  
 Ort: Michaelis-Kirche, Cuxhavener Straße 323**  
 [(weitere Informationen)](http://gedenken-in-harburg.de/start/veranstaltungen/veranstaltungsdetails/event/harburger-gedenktage-2018/)
 
+* * *
+
+## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
+
+Vortrag im Rahmen der Harburger Gedenktagen 2018 am **15. November 2018** im **BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal**
+Am Johannisland 2
+
+Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft 
+zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. 
+Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft 
+für die Auswanderung praktisch ausgebildet. In Neugraben befand sich das „Schalom-Haus“, in dem im 
+Zeitraum zwischen 1922 – 1935 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau 
+und Viehzucht ausgebildet wurden.  
+
+Referent: Peter Offenborn
+geb. 1943, Historiker, 2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”  
+
+![](/img/tmp/Bauplan Schalom-Haus.jpg)
+Bauplan Schalom-Haus
+
+Der Eintritt ist frei, Spenden sind willkommen
 * * *
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
