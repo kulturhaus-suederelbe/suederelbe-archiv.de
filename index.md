@@ -11,30 +11,9 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 6. Oktober 2018, von 10:00 bis 12:00 Uhr
+Sa, 3. November 2018, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
-
-* * *
-
-## Themenabend
-
-### Von der Selbstversorgung zum Supermarkt 
-### - Die  Geschäftswelt in der Süderelbe-Region -
-
-Donnerstag, 18. Oktober 2018 um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe, Am Johannisland 2
-
-
-![](/img/tmp//Milchwerbung_Klein.jpg)
-
-
-Der Vortrag gibt einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
-mit dem Schwerpunkt Neugraben-Fischbek. 
-Der Bogen spannt sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
-
-(Unsere Themenabende finden in der Bücherhalle Neugraben oder im Stadtteilsaal des BGZ Süderelbe statt. Bitte beachten Sie die jeweilige Ankündigung.)
-
-Der Eintritt zu unseren Themenabenden und Rundgängen ist frei - über Ihre Spenden freuen wir uns!
 
 * * *
 

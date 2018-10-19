@@ -1,6 +1,14 @@
 # Veranstaltungsarchiv
 
 
+## Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region -
+Donnerstag, den 18.10.2018 um 19:30 im Stadtteilsaal des BGZ Süderelbe
+
+Der Vortrag von Hilda Thiemann und Uwe Michelau gabt einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
+mit dem Schwerpunkt Neugraben-Fischbek. Der Bogen spannt sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
+
+* * *
+
 ## Neugraben Erleben
 Am So, 9. September 2018, waren Mitglieder des Süderelbe-Archivs von 11:00 bis 16:00 Uhr am Stand des Kulturhauses präsent. Diverse Besucher/innen sprachen uns zu unserem Themenabend ,Geschäftswelt in Süderelbe' an und teilten uns ihre Erinnerungen mit. Vielen Dank!
 
