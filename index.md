@@ -47,10 +47,9 @@ Am Johannisland 2**
 
 Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft 
 zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. 
-Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft 
-für die Auswanderung praktisch ausgebildet. In Neugraben befand sich das „Schalom-Haus“, in dem im 
-Zeitraum zwischen 1922 – 1935 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau 
-und Viehzucht ausgebildet wurden.  
+Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft für die Auswanderung praktisch ausgebildet. 
+
+In Neugraben befand sich das „Schalom-Haus“, in dem während eines kurzen Zeitraums ab 1922 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau und Viehzucht ausgebildet wurden.  
 
 Referent: Peter Offenborn
 geb. 1943, Historiker, 2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”  
