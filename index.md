@@ -26,7 +26,7 @@ Bild: Klotzquintett
 
 
 Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. 
-Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig am Jackenaufschlag mit zerkratztem Hakenkreuz. 
+Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig mit zerkratztem Hakenkreuz am Jackenaufschlag. 
 Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements 
 Jazzstandards aus der damaligen Zeit.
 
