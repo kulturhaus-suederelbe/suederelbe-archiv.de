@@ -26,4 +26,4 @@ Die Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheideba
 ## Weblinks zu Fischbek
 [Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neugraben-Fischbek) (Neugraben-Fischbek)
 
-[Fischbek-Buch] (https://fischbek.de/buch) Buch zur Geschichte Fischbeks (Link am 21.10.2018 hinzugefügt)
+[Fischbek-Buch](https://fischbek.de/buch) Buch zur Geschichte Fischbeks (Link am 21.10.2018 hinzugefügt)
