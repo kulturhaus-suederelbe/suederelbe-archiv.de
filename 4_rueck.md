@@ -4,8 +4,11 @@
 ## Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region -
 Donnerstag, den 18.10.2018 um 19:30 im Stadtteilsaal des BGZ Süderelbe
 
-Der Vortrag von Hilda Thiemann und Uwe Michelau gab einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region 
-mit dem Schwerpunkt Neugraben-Fischbek. Der Bogen spannte sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
+Der Vortrag von Hilda Thiemann und Uwe Michelau gab einen Überblick über die „Blütezeit” der familiengeführten Läden und Geschäfte in der Süderelbe-Region mit dem Schwerpunkt Neugraben-Fischbek. Der Bogen spannte sich von der Vorkriegszeit (Bestand von 1938) bis in die 1970er Jahre.
+
+Zu dem Vortrag kamen rund 70 interessierte Gäste, u.a. auch die Inhaber noch bestehender oder bereits geschlossener Fachgeschäfte, die mit ihren Beiträgen manche Wissenslücke füllen konnten oder Ergänzungen zu den Ausführungen parat hatten.
+
+Vielen Dank an alle Besucher, auch für die großzügigen Spenden für unsere Arbeit! 
 
 * * *
 
