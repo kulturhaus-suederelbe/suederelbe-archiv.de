@@ -1,5 +1,16 @@
 # Veranstaltungsarchiv
 
+## How high the moon – Swingjugend in Wilhelmsburg
+
+Im Rahmen der Harburger Gedenktage 2018 veranstaltete das Süderelbe-Archiv am 3. November um 19.00 Uhr ein 
+Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. Es spielte das Klotz-Quintett.
+
+Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. 
+Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig mit zerkratztem Hakenkreuz am Jackenaufschlag. 
+Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements 
+Jazzstandards aus der damaligen Zeit. Das Süderelbe-Archiv erinnerte an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
+
+* * *
 
 ## Von der Selbstversorgung zum Supermarkt - Die  Geschäftswelt in der Süderelbe-Region -
 Donnerstag, den 18.10.2018 um 19:30 im Stadtteilsaal des BGZ Süderelbe
