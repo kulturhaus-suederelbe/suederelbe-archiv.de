@@ -39,4 +39,4 @@ Web-Auftritt des FTSV Altenwerder mit Texten, Abbildungen und Photos zur ältere
 [Der Dufke-Laden](https://www.altonaermuseum.de/de/ausstellungen/der-dufke-laden.htm) - Deutsch / [The Dufke shop](https://www.altonaermuseum.de/en/exhibitions/the-dufke-shop.htm) - Englisch (Links hinzugefügt am 10.6.2018)
 
 
-
+[Zukunft der Kirche in Altenwerder gesichtert](https://www.ndr.de/nachrichten/hamburg/Zukunft-fuer-Kirche-in-Altenwerder-gesichert,altenwerder122.html) Bericht auf der Website des NDR vom Januar 2018 mit Video-Link (hinzugefügt am 5.11.2018).
