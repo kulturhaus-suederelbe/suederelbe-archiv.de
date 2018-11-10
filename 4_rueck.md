@@ -2,13 +2,11 @@
 
 ## How high the moon – Swingjugend in Wilhelmsburg
 
-Im Rahmen der Harburger Gedenktage 2018 veranstaltete das Süderelbe-Archiv am 3. November um 19.00 Uhr ein 
-Swing-Konzert mit Lesung in der Michaelis-Kirche, Neugraben. Es spielte das Klotz-Quintett.
+Unter dem Motto „How high the moon” veranstaltete das Kulturhaus Süderelbe am 03.11.2018 eine musikalische Lesung in der Michaeliskirche in Neugraben. Thematisiert wurde die Pfennigbande und Swingjugend in Hamburg-Wilhelmsburg, die in den 40er Jahren den amerikanischen Musik- und Kleidungsstil lebte und sich auch als Gegenpol zum Nationalsozialismus und der Hitlerjugend empfand. Überraschend angesetzte Musik– und Tanzveranstaltungen erfolgten in Kinos und Flakbunkern. Das Kennzeichen der Pfennigbande war ein unter dem Jackenrevers befestigter Pfennig mit einem zerkratztem Hakenkreuz. Im August 1941 begann durch das NS - Regime eine Verfolgung der Swing Jugend. Ca. 300 Personen wurden verhaftet und verurteilt, zum Teil in Konzentrationslagern untergebracht. Den hervorragenden musikalischen Teil des Abends spielte das Klotz Quintett mit Stücken aus der amerikanischen Swingzeit.
 
-Während der Bombenkrieg 1943 über Hamburg tobt, zieht eine Jugendbande durch Wilhelmsburg und hört heimlich Jazz. 
-Sie nennen sich die Pfennigbande und ihr Erkennungszeichen ist ein Pfennig mit zerkratztem Hakenkreuz am Jackenaufschlag. 
-Ihre Art aus der Reihe zu tanzen wird durch Zeitzeugenberichte lebendig. Das Klotzquintett spielt mit modernen Arrangements 
-Jazzstandards aus der damaligen Zeit. Das Süderelbe-Archiv erinnerte an die Lebensläufe zweier Mitglieder der Pfennigbande aus Neugraben-Fischbek.
+Ebenfalls vorgetragen wurden die Widerstandswege einiger Bürger aus dem Neugraben-Fischbeker Bereich, die auch durch die Verteilung von kommunistischen Zeitschriften zu Gefängnisstrafen oder zu Einsätzen im Strafbataillon verurteilt wurden. In Neugraben erfolgte die Verteilung von kommunistischen Zeitschriften auch durch die Familien Marsand und Peters in einem Kiosk der Familie Marsand am Bahnhof.  
+ 
+Walter Marsand
 
 * * *
 
