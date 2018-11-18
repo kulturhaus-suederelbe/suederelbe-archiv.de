@@ -11,10 +11,9 @@ Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und
 
 In Neugraben befand sich das „Schalom-Haus“, in dem während eines kurzen Zeitraums ab 1922 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau und Viehzucht ausgebildet wurden.
 
-In seinem Vortrag breitete Peter Offenborn sein fundiertes Wissen zur jüdischen Jugend in Hamburg  
+In seinem Vortrag breitete Peter Offenborn sein fundiertes Wissen zur jüdischen Jugend in Hamburg vor den Zuhörern aus. Die Hachschara (d.h. die Vorbereitung auf die Siedlung in Palästina) wurde dezentral an diversen Ausbildungsorten in Hamburg durchgeführt, darunter auch zeitweilig in einem Privathaus in Neugraben.
 
-
-Der Vortrag mit anschließendem Austausch wurde von etwa 25 Personen besucht.
+Zu dem Vortrag mit anschließendem Austausch waren etwa 25 Personen in den Stadtteilsaal gekommen.
 
 
 img / Bauplan Schalom-Haus
