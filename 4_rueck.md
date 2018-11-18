@@ -15,8 +15,9 @@ In seinem Vortrag breitete Peter Offenborn sein fundiertes Wissen zur jüdischen
 
 Zu dem Vortrag mit anschließendem Austausch waren etwa 25 Personen in den Stadtteilsaal gekommen.
 
+![](/img/tmp/Bauplan Schalom-Haus.jpg)
 
-img / Bauplan Schalom-Haus
+Bauplan Schalom-Haus
 
 
 
