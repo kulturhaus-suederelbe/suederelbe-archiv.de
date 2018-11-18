@@ -15,26 +15,17 @@ Sa, 1. Dezember 2018, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
+Unsere Termine für 2019 finden Sie unter "Aktivitäten".
+
 * * *
 
-## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
+## Themenabende 2019 - neue Termine
 
-Vortrag im Rahmen der Harburger Gedenktagen 2018 am **15. November 2018** im **BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, 
-Am Johannisland 2**
+Auch im Jahr 2019 werden wir wieder Themenabende ausrichten. Wir freuen uns, Ihnen an dieser Stelle bald Näheres mitzuteilen.
+Themen werden u.a. sein: Fischbeker Geschichte im Besonderen und die Entwicklung - historisch wie demographisch - des Süderelberaums allgemein.
 
-Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft 
-zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. 
-Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft für die Auswanderung praktisch ausgebildet. 
+**Der Eintritt zu unseren Themenabenden bleibt frei, Spenden sind uns willkommen.**
 
-In Neugraben befand sich das „Schalom-Haus“, in dem während eines kurzen Zeitraums ab 1922 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau und Viehzucht ausgebildet wurden.  
-
-Referent: Peter Offenborn
-geb. 1943, Historiker, 2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”  
-
-![](/img/tmp/Bauplan Schalom-Haus.jpg)
-Bauplan Schalom-Haus
-
-**Der Eintritt ist frei, Spenden sind willkommen**
 * * *
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
