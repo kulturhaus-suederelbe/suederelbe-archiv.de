@@ -1,5 +1,27 @@
 # Veranstaltungsarchiv
 
+## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
+
+Vortrag im Rahmen der Harburger Gedenktagen 2018 am 15. November 2018 im BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, Am Johannisland 2
+
+Referent: Peter Offenborn geb. 1943, Historiker
+2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”
+
+Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft für die Auswanderung praktisch ausgebildet.
+
+In Neugraben befand sich das „Schalom-Haus“, in dem während eines kurzen Zeitraums ab 1922 jüdische Jugendliche wohnten, die bei benachbarten Bauern in Ackerbau und Viehzucht ausgebildet wurden.
+
+In seinem Vortrag breitete Peter Offenborn sein fundiertes Wissen zur jüdischen Jugend in Hamburg  
+
+
+Der Vortrag mit anschließendem Austausch wurde von etwa 25 Personen besucht.
+
+
+img / Bauplan Schalom-Haus
+
+
+
+
 ## How high the moon – Swingjugend in Wilhelmsburg
 
 Unter dem Motto „How high the moon” veranstaltete das Kulturhaus Süderelbe am 03.11.2018 eine musikalische Lesung in der Michaeliskirche in Neugraben. Thematisiert wurde die Pfennigbande und Swingjugend in Hamburg-Wilhelmsburg, die in den 40er Jahren den amerikanischen Musik- und Kleidungsstil lebte und sich auch als Gegenpol zum Nationalsozialismus und der Hitlerjugend empfand. Überraschend angesetzte Musik– und Tanzveranstaltungen erfolgten in Kinos und Flakbunkern. Das Kennzeichen der Pfennigbande war ein unter dem Jackenrevers befestigter Pfennig mit einem zerkratztem Hakenkreuz. Im August 1941 begann durch das NS - Regime eine Verfolgung der Swing Jugend. Ca. 300 Personen wurden verhaftet und verurteilt, zum Teil in Konzentrationslagern untergebracht. Den hervorragenden musikalischen Teil des Abends spielte das Klotz Quintett mit Stücken aus der amerikanischen Swingzeit.
