@@ -15,8 +15,6 @@ im ersten Halbjahr 2019: 10. Januar, 14. Februar, 14. März, 11. April.
 
 Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
 
-Letzter Offener Treffpunkt im zweiten Halbjahr 2018: 1. Dezember;
-
 Offene Treffpunkte im ersten Halbjahr 2019: 5. Januar, 2. Februar und 2. März.
 
 ## Themenabende
