@@ -26,6 +26,12 @@ Themen werden u.a. sein: Fischbeker Geschichte im Besonderen und die Entwicklung
 
 **Der Eintritt zu unseren Themenabenden bleibt frei, Spenden sind uns willkommen.**
 
+
+## Altenwerder Klönschnack 2019
+
+An dieser Stelle weisen wir darauf hin, dass im nächsten Jahr - am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr - wieder ein Altenwerder Klönschnack stattfindet. 
+Alles nötige hierzu erfahren Sie unter: https://kirchesuederelbe.de/altenwerder/
+
 * * *
 
 ## Aufruf - Ihre Dokumente, Ihre Geschichte
