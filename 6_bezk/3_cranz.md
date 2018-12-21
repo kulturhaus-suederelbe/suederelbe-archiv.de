@@ -13,4 +13,5 @@ Stifter waren die Edlen von Heimbruch, die Brüder Heinrich und Gerlach.
 
 ## Weblinks zu Cranz
 [Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Cranz)
+
 [Geschichte der St. Martini Kirche in Estebrügge](http://www.kirche-altes-land.de/pages/estebruegge/geschichte/index.html) (hinzugefügt am 21.12.2018)
