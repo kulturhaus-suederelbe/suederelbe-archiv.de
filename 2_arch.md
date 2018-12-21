@@ -2,12 +2,7 @@
 
 ## Unsere Ziele
 
-Wir sammeln und archivieren historische Fotos, Karten, Bücher, Zeitungen
-und Berichte von Zeitzeugen aus dem Süderelbegebiet. Das gesammelte
-Material gibt einen Einblick in die wechselvolle Geschichte der
-Süderelbe-Region und bewahrt so die Erinnerung an die Vergangenheit. Es
-steht historisch interessierten Bürgern und vor allem Schülern der
-umliegenden Schulen zur Verfügung.
+Als Geschichtswerkstatt für den Hamburger Südwesten im historischen Bezirk Süderelbe sammeln und archivieren wir historische Fotos, Karten, Bücher, Zeitungen und Berichte von Zeitzeugen aus unserem Einzugsgebiet. Das gesammelte Material gibt einen Einblick in die wechselvolle Geschichte der Süderelbe-Region und bewahrt so die Erinnerung an die Vergangenheit. Es steht historisch interessierten Bürgern und vor allem Schülern der umliegenden Schulen als außerschulischer Lernort zur Verfügung.
 
 ![](/img/Bahnhof_Ngr_alt.png)
 ![](/img/Bahnhof_Ngr_neu.png)  
