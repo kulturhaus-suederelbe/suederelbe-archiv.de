@@ -1,10 +1,10 @@
 # Veranstaltungsarchiv
 
-## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren
+## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren - Das Schalom-Haus in Neugraben
 
 Vortrag im Rahmen der Harburger Gedenktagen 2018 am 15. November 2018 im BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, Am Johannisland 2
 
-Referent: Peter Offenborn geb. 1943, Historiker -
+Referent: Peter Offenborn geb. 1943, Historiker aus Hamburg.
 
 2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”
 
