@@ -4,7 +4,8 @@
 
 Vortrag im Rahmen der Harburger Gedenktagen 2018 am 15. November 2018 im BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, Am Johannisland 2
 
-Referent: Peter Offenborn geb. 1943, Historiker
+Referent: Peter Offenborn geb. 1943, Historiker -
+
 2007 Abschluss eines Forschungsvorhabens „Jüdische Jugend in Hamburg 1933–1941”
 
 Die zionistische Idee, in Palästina zu siedeln und dort eine von Verfolgung und Not freie jüdische Gemeinschaft zu errichten, hatte Anfang der 1920er Jahre auch jüdische Jugendliche in Hamburg erreicht. Sie wurden von jüdischen Organisationen in schulischen Einrichtungen in Handwerk und Landwirtschaft für die Auswanderung praktisch ausgebildet.
