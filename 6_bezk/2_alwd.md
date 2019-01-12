@@ -10,7 +10,7 @@ Theodor Benecke (1919), *Geschichtliche Nachrichten über Moorburg, Finkenwärde
 
 Broockmann/Zapf (1996), *Süderelbe. Region der Gegensätze*, 1986.
 
-Eberhard Postel, *Landarzt in Altenwerder. Erinnerungen*.
+Eberhard Postel (1995), *Landarzt in Altenwerder. Erinnerungen*.
 
 Gustav Wülfken (1989), *So schön war Altenwerder*, Hamburg-Neugraben: Verlag Uwe Herbst.
 
