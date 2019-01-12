@@ -5,16 +5,16 @@ steht das Archiv im Rahmen eines sogenannten Offenen Treffpunkts allen Interessi
 
 ## Arbeitsgruppe
 
-Regelmäßig trifft sich eine Geschichtsgruppe, in der Regel am 2. Donnerstag im Monat um 19:30 Uhr in der Bücherhalle zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
+Regelmäßig trifft sich eine Geschichtsgruppe, in der Regel am 2. Donnerstag im Monat um 18:30 Uhr in der Bücherhalle zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
-Arbeitsgruppen-Termine im ersten Halbjahr 2019: 10. Januar, 14. Februar, 14. März, 11. April.
+Arbeitsgruppen-Termine im ersten Halbjahr 2019: 14. Februar, 14. März, 11. April.
 
 
 ## Offener Treffpunkt
 
 Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
 
-Offene Treffpunkte im ersten Halbjahr 2019: 5. Januar, 2. Februar und 2. März.
+Offene Treffpunkte im ersten Halbjahr 2019: 2. Februar, 2. März, 6. April und 4. Mai.
 
 ## Themenabende
 
