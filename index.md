@@ -11,7 +11,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 5. Januar 2019, von 10:00 bis 12:00 Uhr
+Sa, 2. Februar 2019, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
