@@ -10,7 +10,7 @@
 
 **1881 - 1885:** Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) in der Preußischen Provinz Hannover, Amt Harburg.
 
-1885 - 1938:** Gemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) im Landkreis Harburg, Regierungsbezirk Lüneburg.
+**1885 - 1938:** Gemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) im Landkreis Harburg, Regierungsbezirk Lüneburg.
 
 **1938 - 1948:** Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) in der Kreis-Verwaltung 8 der Hansestadt Hamburg.
 
