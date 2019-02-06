@@ -34,6 +34,7 @@ Wir gehen davon aus, dass die Lage der Hofflächen und der darauf stehenden Häu
 
 Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
 
+
 ### Hof Nr. 1 „Barrs”, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
 Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts-Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
 
@@ -44,37 +45,37 @@ Ansicht von der gegenüber liegenden Straßenseite nach Norden auf die neuen Geb
 
 ![](/img/Fischbek/T01-3-3.jpg)
 
-**1922 Hof Nr. 1 „Barrs”: **
+**1922, Hof Nr. 1 „Barrs”:**
 Der Gesangverein „Germania Fischbeck” feiert mit den Nachbarvereinen und den Einwohnern sein 25jähriges Stiftungsfest auf „Barrs Hoff”. Auf der Bühne vor „Barrs lütt Hus” singt ein gemischter Chor.
 
 ![](/img/Fischbek/T01-2-4.jpg)
 
-**1933 Hof Nr. 1 „Barrs”: **
+**1933, Hof Nr. 1 „Barrs”:**
 Das Häuslingshaus von „Barrs Hoff” am Borchersweg gelegen. Dort wurde das Mehrfamilienhaus Borchersweg 3 errichtet. Die Straße ist nach Johann Borchers benannt, der um 1665 den Hof bewirtschaftete.
 
 ![](/img/Fischbek/T01-3-1.jpg)
 
-**1950 Hof Nr. 1 „Barrs”: **
+**1950, Hof Nr. 1 „Barrs”:**
 Ansicht von der Cuxhavener Straße auf den östlichen Teil des Hofes mit der Scheune, in der über viele Jahre der 1905 von der Gemeinde Fischbeck angeschaffte hölzerne Leichenwagen stand. Im Hintergrund das Häuslingshaus Nr. 12c (Borchersweg 3).
 
 ![](/img/Fischbek/T01-3-2.jpg)
 
-**1953 Hof Nr. 1 „Barrs”:**
+**1953, Hof Nr. 1 „Barrs”:**
 Ansicht von der Einmündung des Borchersweg in die Cuxh. Str. auf „Barrs lütt Hus”, (Haus Nr. 12c). Das Häuslingshaus von „Barrs Hoff” am Borchersweg gelegen, wurde 1962 abgerissen. Dort wurde das Mehrfamilienhaus am Borchersweg errichtet.
 
 ![](/img/Fischbek/T01-2-2.jpg)
 
-**1956 Hof Nr. 1 „Barrs”: **
+**1956, Hof Nr. 1 „Barrs”:**
 Die Hofscheune steht bereits nicht mehr, dort steht heute das Mehrfamilienhaus Cuxhavener Straße 462. Im Hintergrund das Wohnhaus von Cohrs „Meyers Johann” (Wilmshof 10).
 
 ![](/img/Fischbek/T01-2-3.jpg)
 
-**1956 Hof Nr. 1 „Barrs”: **
+**1956, Hof Nr. 1 „Barrs”:**
 Ansicht von der Cuxhavener Straße auf den Wirtschaftsteil mit Wohnhaus-Anbau von Familie Tiedge. „Barrs Hoff” wurde zu der Zeit bereits 15 Jahre nicht mehr bewirtschaftet.
 
 ![](/img/Fischbek/T01-3-4.jpg)
 
-**1962 Hof Nr. 1 „Barrs”: **
+**1962, Hof Nr. 1 „Barrs”:**
 In Verbindung mit einer Übung der Freiwilligen Feuerwehr Fischbek wird das Häuslingshaus von „Barrs Hoff” abgetragen (warmer Abbruch). Hier steht heute das Wohnhaus Borchersweg 3.
 
 Weitere Bilder folgen
