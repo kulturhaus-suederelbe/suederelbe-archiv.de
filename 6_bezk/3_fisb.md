@@ -36,7 +36,7 @@ Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
 
 
 ### Hof Nr. 1 „Barrs”, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
-Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts-Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
+Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts- Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
 
 ![](/img/Fischbek/T01-2-1.jpg)
 
@@ -77,5 +77,23 @@ Ansicht von der Cuxhavener Straße auf den Wirtschaftsteil mit Wohnhaus-Anbau vo
 
 **1962, Hof Nr. 1 „Barrs”:**
 In Verbindung mit einer Übung der Freiwilligen Feuerwehr Fischbek wird das Häuslingshaus von „Barrs Hoff” abgetragen (warmer Abbruch). Hier steht heute das Wohnhaus Borchersweg 3.
+
+### Hof Nr. 2 „Stoffs”, Fischbek Haus Nr. 13, jetzt Cuxhavener Straße 455
+Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Christoffer”. Nach dem Moisburger Amts- Geldregister wurde die Großkötnerstelle in den Jahren 1610 / 1640 von Christoffer Frohen geführt.
+
+![](/img/Fischbek/T01-4-1.jpg)
+
+**1994: Hof Nr. 2 „Stoffs”:**
+Ansicht auf den nach Süden gerichteten Wirtschaftsteil mit der „Groot Döör” und den seitlichen Stallungen. Der strohgedeckte Bau hatte ursprünglich Fachwerk in den Außenwänden, das jetzt durch Backsteinmauerwerk ersetzt ist.
+
+![](/img/Fischbek/T01-5-2.jpg)
+
+**Um 1960: Hof Nr. 2 „Stoffs”:**
+Ansicht auf die Südwestseite des ehemaligen Häuslingshauses, das direkt an der zum ehemaligen „Beek” verlaufenden „Poststraße” (Posteck) gestanden hat. Im Hintergrund ist das Haus Nr. 53 („Rahmaker” P. Oelkers) zu erkennen.
+
+![](/img/Fischbek/T01-5-1.jpg)
+
+**Um 1970: Hof Nr. 2 „Stoffs”:**
+Ansicht von Süden auf den Hof mit dem westlich liegenden Stallgebäude und dem direkt am Posteck stehenden ehemaligen Häuslingshaus, dass zu der Zeit als Bullenstall genutzt wurde.
 
 Weitere Bilder folgen
