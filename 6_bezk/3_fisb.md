@@ -34,7 +34,7 @@ Wir gehen davon aus, dass die Lage der Hofflächen und der darauf stehenden Häu
 
 Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
 
-# Hof Nr. 1 „Barrs“, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
+### Hof Nr. 1 „Barrs“, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
 Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser“. Nach dem Moisburger Amts-Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
 
 ![](/img/Fischbek/T01-2-1.jpg)
@@ -78,3 +78,4 @@ Ansicht von der Cuxhavener Straße auf den Wirtschaftsteil mit Wohnhaus-Anbau vo
 In Verbindung mit einer Übung der Freiwilligen Feuerwehr Fischbek wird das Häuslingshaus von „Barrs Hoff“ abgetragen (warmer Abbruch). Hier steht heute das Wohnhaus Borchersweg 3.
 
 
+Weitere Bilder folgen
