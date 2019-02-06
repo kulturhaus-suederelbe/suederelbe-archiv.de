@@ -40,7 +40,7 @@ Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursp
 
 ![](/img/Fischbek/T01-2-1.jpg)
 
-**2002 Hof Nr. 1 „Barrs”: **
+**2002, Hof Nr. 1 „Barrs”:**
 Ansicht von der gegenüber liegenden Straßenseite nach Norden auf die neuen Gebäude der ehemaligen Hoffläche. Das Wohnhaus rechts im Bild steht auf der Fläche des ehemaligen Häuslingshauses am Borchersweg.
 
 ![](/img/Fischbek/T01-3-3.jpg)
