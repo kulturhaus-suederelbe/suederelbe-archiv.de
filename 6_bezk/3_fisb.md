@@ -39,7 +39,6 @@ Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
 Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts- Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
 
 ![](/img/Fischbek/T01-2-1.jpg)
-
 **2002, Hof Nr. 1 „Barrs”:**
 Ansicht von der gegenüber liegenden Straßenseite nach Norden auf die neuen Gebäude der ehemaligen Hoffläche. Das Wohnhaus rechts im Bild steht auf der Fläche des ehemaligen Häuslingshauses am Borchersweg.
 
@@ -77,6 +76,8 @@ Ansicht von der Cuxhavener Straße auf den Wirtschaftsteil mit Wohnhaus-Anbau vo
 
 **1962, Hof Nr. 1 „Barrs”:**
 In Verbindung mit einer Übung der Freiwilligen Feuerwehr Fischbek wird das Häuslingshaus von „Barrs Hoff” abgetragen (warmer Abbruch). Hier steht heute das Wohnhaus Borchersweg 3.
+
+
 
 
 ### Hof Nr. 2 „Stoffs”, Fischbek Haus Nr. 13, jetzt Cuxhavener Straße 455
