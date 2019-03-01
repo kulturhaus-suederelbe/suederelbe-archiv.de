@@ -19,11 +19,11 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 
 * * *
 
-## Themenabende 2019 - neue Termine
+### Themenabende 2019 - neue Termine
 
 Ausstellung und einführender Themenabend am Donnerstag, 28. März 2019, 19:30 Uhr - Stadtteilsaal BGZ Süderelbe, Am Johannisland 2
 
-## ** Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!"
+## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!"
 
 Ein Abend mit den Autoren und ,Machern' der Tafeln zur Fischbeker Geschichte - Heinrich Butt, Manfred Heinrichs, Joachim Löffler und Hans Strüver, moderiert von Matthias Pfeifer.
 
