@@ -24,16 +24,17 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 Ausstellung und einführender Themenabend am Donnerstag, 28. März 2019, 19:30 Uhr - Stadtteilsaal BGZ Süderelbe, Am Johannisland 2
 
 ## Fischbeker Vergangenheit 
-## "Dat mööt ji för alle Tieden fastholen!"
+**## "Dat mööt ji för alle Tieden fastholen!"**
 
 Ein Abend mit den Autoren und ,Machern' der Tafeln zur Fischbeker Geschichte - Heinrich Butt, Manfred Heinrichs, Joachim Löffler und Hans Strüver, moderiert von Matthias Pfeifer.
 
 
-
+* * *
 
 
 **Der Eintritt zu unseren Themenabenden bleibt frei, Spenden sind uns willkommen.**
 
+* * *
 
 ## Altenwerder Klönschnack 2019
 
