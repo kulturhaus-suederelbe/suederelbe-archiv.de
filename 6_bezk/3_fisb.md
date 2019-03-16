@@ -5,13 +5,19 @@ Fischbek liegt im Südwesten des Süderelbe-Bezirks und gehört seit 1948 zum St
 ## Inhalt
 
 [Fischbeker Vergangenheit, Broschüre, Hamburg 2005](#Fischbeker_Vergangenheit)
-Fototafeln zur Fischbeker Geschichte, Hamburg 2003, 2019
-Entstehung des Dorfes Fischbek
-Die ersten 5 Siedlerstellen
-Lage der ersten 15 Siedlerstellen
-Weitere Informationen
 
-## <a name="Fischbeker_Vergangenheit"></a>Fischbeker Vergangenheit - Erinnerungen aus dem Dorf Fischbek in Wort und Bild
+[Fototafeln zur Fischbeker Geschichte, Hamburg 2003/2018](#Fototafeln)
+
+[Entstehung des Dorfes Fischbek](#Entstehung)
+
+[Die ersten 5 Siedlerstellen](#5_Siedlerstellen)
+
+[Lage der ersten 15 Siedlerstellen](#15_Siedlerstellen)
+
+[Weitere Informationen](#Infos)
+
+## <a name="Fischbeker_Vergangenheit"></a>Fischbeker Vergangenheit
+### Erinnerungen aus dem Dorf Fischbek in Wort und Bild
 
 Im Jahr 2005 haben Karl Heinz Altevogt, Heinrich Butt, Manfred Heinrichs und Hans Strüver im Selbstverlag eine Broschüre zur Fischbeker Geschichte herausgegeben. Das Werk ist inzwischen vergriffen, eine weitere Auflage ist aber geplant. Bei Interesse an einem Exemplar schreiben Sie uns bitte eine Mail an info@suederelbe-archiv.de. Das Vorwort gibt einen recht guten Überblick über den Werdegang und den Inhalt der Broschüre.
 
@@ -31,7 +37,15 @@ Wir wünschen viel Freude beim Lesen und Betrachten der „Fischbeker Vergangenh
 
 [Zum Seitenanfang](#Top)
 
-## Entstehung des Dorfes Fischbek
+## <a name="Fototafeln"></a>Fototafeln
+
+Für die 100-Jahrfeier des Schützenvereins Fischbek und Umgegend von 1903 e.V. wurden von den Autoren der „Fischbeker Vergangenheit” 40 großformatige Tafeln mit historischen und aktuellen Fotos aus Fischbek mit Begleittexten geschaffen. Auch nach dem Jubiläum des Schützenvereins wurden diese Tafeln auf verschiedenen Ausstellungen gezeigt. Leider war eine gute Lagerung nicht immer möglich, so dass langfristig ein Verfall durch Schimmel befürchtet werden musste. 
+
+In den Jahren 2017/18 konnte der größte Teil der Bilder digitalisiert, auf 28 Tafeln neu zusammengestellt und auf wetterfestem Alu-Träger im Format 120 x 85 cm ausgedruckt. Dieses Projekt wurde aus dem Verfügungsfond des Quartiersbeirates Neugraben-Fischbek gefördert. Damit stehen die neuen Tafeln jetzt für Ausstellung zur Verfügung. Anfragen dazu können gern an das Süderelbe-Archiv gerichtet werden.
+
+[Zum Seitenanfang](#Top)
+
+## <a name="Entstehung"></a>Entstehung des Dorfes Fischbek
 
 **1544:** Ansiedlung „VISCHBECKE” erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
 
@@ -49,7 +63,7 @@ Wir wünschen viel Freude beim Lesen und Betrachten der „Fischbeker Vergangenh
 
 [Zum Seitenanfang](#Top)
 
-## Die ersten 5 Siedlerstellen
+## <a name="5_Siedlerstellen"></a>Die ersten 5 Siedlerstellen
 
 Nach Literaturangaben ist der Ort Fischbek erstmals urkundlich unter dem Namen „Vischbecke” im Verzeichnis der Hofstellen vom Amt der Vogtei Moisburg erwähnt worden. Der Eintrag aus dem Jahr 1544 lautet: „Vischbecke 2 hoffe 3 kothen”. Die Ansiedlung ist demnach vor 1544 gegründet worden.  
 Die Namen dieser ersten „Siedler” sind in dem Einwohnerregister des Amtes Moisburg von 1563 wie folgt enthalten und können den Jahrhunderte lang bestehenden Höfen zugeordnet werden. Somit ist auch die örtliche Lage der Siedlerstellen bekannt.
@@ -60,14 +74,7 @@ Die Namen dieser ersten „Siedler” sind in dem Einwohnerregister des Amtes Mo
 + Kote (Nr. 4) Härmen Hoppen, „Moisburger Mann” siedelte noch weiter nördlich, westlich vom Beek.  
 + Kote (Nr. 6) Simon Hauschilt, „Moisburger Mann” siedelte dazwischen auf der östlichen Seite.  
 
-Über die Lage der ersten Katen und Koten aus der Gründungszeit von Fischbek gibt es verständlicherweise kein Kartenmaterial. Es kann aber wohl davon ausgegangen werden, dass die Wege, Hofflächen, Äcker, das Gelände und die Gebäude mit den derzeit verfügbaren Mitteln präzise in der 1772 von Hannoverschen Offizieren erstellten Kurhannoverschen Landesaufnahme  eingezeichnet wurden. Allerdings war der Karteninhalt derzeit geheim und somit auch von Ortskundigen nicht nachprüfbar.
-Wir gehen davon aus, dass die Lage der Hofflächen und der darauf stehenden Häuser auch rund 200 Jahre zuvor bestanden hat und haben diese in den Ausschnitt der Deutschen Grundkarte 1:5.000 eingezeichnet.
-
-![](/img/Fischbek/Fischbek-1772-2017.jpg)
-
-Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
-
-[Zum Seitenanfang](#Top)
+Die folgenden Bilder zu den ersten 5 Siedlerstellen sind der Broschüre „Fischbeker Vergangenheit entnommen. Zur Orientierung sind die heutigen Adressen genannt.
 
 ### Hof Nr. 1 „Barrs”, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
 Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts- Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
@@ -192,3 +199,21 @@ Wohn- und Wirtschaftsgebäude von Norden aus gesehen, es wurde 1875 erbaut.
 **1974: Hof Nr. 6 „Vesters”:**
 Der Schafstall des Hofes aus Richtung Osten (Borchersweg) aufgenommen. Das Gebäude war baufällig und musste abgerissen werden. Balken und Steine wurden eingelagert und die riesigen Findlinge der Gründung gekennzeichnet.
 
+[Zum Seitenanfang](#Top)
+
+## <a name="15_Siedlerstellen"></a>Lage der ersten 15 Siedlerstellen
+
+Über die Lage der ersten Katen und Koten aus der Gründungszeit von Fischbek gibt es verständlicherweise kein Kartenmaterial. Es kann aber wohl davon ausgegangen werden, dass die Wege, Hofflächen, Äcker, das Gelände und die Gebäude mit den derzeit verfügbaren Mitteln präzise in der 1772 von Hannoverschen Offizieren erstellten Kurhannoverschen Landesaufnahme  eingezeichnet wurden. Allerdings war der Karteninhalt derzeit geheim und somit auch von Ortskundigen nicht nachprüfbar.
+Wir gehen davon aus, dass die Lage der Hofflächen und der darauf stehenden Häuser auch rund 200 Jahre zuvor bestanden hat und haben diese in den Ausschnitt der Deutschen Grundkarte 1:5.000 eingezeichnet.
+
+![](/img/Fischbek/Fischbek-1772-2017.jpg)
+
+Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
+
+[Zum Seitenanfang](#Top)
+
+## <a name="Infos"></a>Weitere Informationen
+
+Wird ergänzt
+
+[Zum Seitenanfang](#Top)
