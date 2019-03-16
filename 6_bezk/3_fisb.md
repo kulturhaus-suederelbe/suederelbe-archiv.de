@@ -1,6 +1,6 @@
-﻿# Fischbek
+﻿# <a name="Top"></a>Fischbek
 
-## <a name="Top"></a>Entstehung des Dorfes Fischbek
+## Entstehung des Dorfes Fischbek
 
 **1544:** Ansiedlung „VISCHBECKE” erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
 
@@ -16,7 +16,7 @@
 
 **1948:** Die Landgemeinde Fischbeck mit Scheideholz und Neugraben (westlich vom Scheidebach) und der östlich vom Scheidebach liegende Teil der Landgemeinde Neugraben wurden zum Stadtteil Neugraben-Fischbek in der Freien und Hansestadt Hamburg.
 
-[Nach oben](#Top)
+[Zum Seitenanfang](#Top)
 
 ## Die ersten 5 Siedlerstellen
 
@@ -36,6 +36,7 @@ Wir gehen davon aus, dass die Lage der Hofflächen und der darauf stehenden Häu
 
 Projektion der Kurhannoverschen Landesaufnahme von 1772 in die Grundkarte 2017
 
+[Zum Seitenanfang](#Top)
 
 ### Hof Nr. 1 „Barrs”, Fischbek Haus Nr. 12, jetzt Cuxhavener Str. 462, 464 / Ecke Borchersweg
 Die Hofstelle wurde erstmals im Jahre 1563 erwähnt. Der Hofname hat seinen Ursprung in dem Vornamen „Baltser”. Nach dem Moisburger Amts- Geldregister wurde die Großkötnerstelle in den Jahren 1628 / 1649 von Baltser Hennings geführt.
