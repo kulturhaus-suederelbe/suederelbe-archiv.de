@@ -43,7 +43,7 @@ Fischbek 2005
 
 Für die 100-Jahrfeier des Schützenvereins Fischbek und Umgegend von 1903 e.V. wurden von den Autoren der „Fischbeker Vergangenheit” 40 großformatige Tafeln mit historischen und aktuellen Fotos aus Fischbek mit Begleittexten geschaffen. Auch nach dem Jubiläum des Schützenvereins wurden diese Tafeln auf verschiedenen Ausstellungen gezeigt. Leider war eine gute Lagerung nicht immer möglich, so dass langfristig ein Verfall durch Schimmel befürchtet werden musste. 
 
-In den Jahren 2017/18 konnte der größte Teil der Bilder digitalisiert, auf 28 Tafeln neu zusammengestellt und auf wetterfestem Alu-Träger im Format 120 x 85 cm ausgedruckt. Dieses Projekt wurde aus dem Verfügungsfond des Quartiersbeirates Neugraben-Fischbek gefördert. Damit stehen die neuen Tafeln jetzt für Ausstellung zur Verfügung. Anfragen dazu können gern an das Süderelbe-Archiv gerichtet werden.
+In den Jahren 2017/18 konnte der größte Teil der Bilder digitalisiert, auf 28 Tafeln neu zusammengestellt und auf wetterfestem Alu-Träger im Format 120 x 85 cm ausgedruckt werden. Dieses Projekt wurde aus dem Verfügungsfond des Quartiersbeirates Neugraben-Fischbek gefördert. Damit stehen die neuen Tafeln jetzt für Ausstellung zur Verfügung. Anfragen dazu können gern an das Süderelbe-Archiv gerichtet werden.
 
 [Zum Seitenanfang](#Top)
 
