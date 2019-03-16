@@ -19,7 +19,7 @@ Fischbek liegt im Südwesten des Süderelbe-Bezirks und gehört seit 1948 zum St
 ## <a name="Fischbeker_Vergangenheit"></a>Fischbeker Vergangenheit
 ### Erinnerungen aus dem Dorf Fischbek in Wort und Bild
 
-Im Jahr 2005 haben Karl Heinz Altevogt, Heinrich Butt, Manfred Heinrichs und Hans Strüver im Selbstverlag eine Broschüre zur Fischbeker Geschichte herausgegeben. Das Werk ist inzwischen vergriffen, eine weitere Auflage ist aber geplant. Bei Interesse an einem Exemplar schreiben Sie uns bitte eine Mail an info@suederelbe-archiv.de. Das Vorwort gibt einen recht guten Überblick über den Werdegang und den Inhalt der Broschüre.
+Im Jahr 2005 haben Karl Heinz Altevogt, Heinrich Butt, Manfred Heinrichs und Hans Strüver im Selbstverlag eine Broschüre zur Fischbeker Geschichte herausgegeben. Das Werk ist inzwischen vergriffen, eine weitere Auflage ist aber geplant. Bei Interesse an einem Exemplar schreiben Sie uns bitte eine [Mail](mailto:info@suederelbe-archiv.de). Das Vorwort gibt einen recht guten Überblick über den Werdegang und den Inhalt der Broschüre.
 
 ### Vorwort
 
