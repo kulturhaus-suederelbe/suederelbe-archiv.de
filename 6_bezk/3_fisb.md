@@ -1,5 +1,36 @@
 ﻿# <a name="Top"></a>Fischbek
 
+Fischbek liegt im Südwesten des Süderelbe-Bezirks und gehört seit 1948 zum Stadtteil Neugraben-Fischbek in der Freien und Hansestadt Hamburg. 
+
+## Inhalt
+
+[Fischbeker Vergangenheit, Broschüre, Hamburg 2005](#Fischbeker_Vergangenheit)
+Fototafeln zur Fischbeker Geschichte, Hamburg 2003, 2019
+Entstehung des Dorfes Fischbek
+Die ersten 5 Siedlerstellen
+Lage der ersten 15 Siedlerstellen
+Weitere Informationen
+
+## <a name="Fischbeker_Vergangenheit"></a>Fischbeker Vergangenheit - Erinnerungen aus dem Dorf Fischbek in Wort und Bild
+
+Im Jahr 2005 haben Karl Heinz Altevogt, Heinrich Butt, Manfred Heinrichs und Hans Strüver im Selbstverlag eine Broschüre zur Fischbeker Geschichte herausgegeben. Das Werk ist inzwischen vergriffen, eine weitere Auflage ist aber geplant. Bei Interesse an einem Exemplar schreiben Sie uns bitte eine Mail an info@suederelbe-archiv.de. Das Vorwort gibt einen recht guten Überblick über den Werdegang und den Inhalt der Broschüre.
+
+### Vorwort
+
+Der Anstoß zu dieser Broschüre  kam von Besuchern der historischen Ausstellung „Fischbeker Vergangenheit”. Diese wurde im Juni 2003, anlässlich der 100-Jahrfeier des Schützenvereins Fischbek und Umgegend von 1903 e.V., von Vereinsmitgliedern auf „Wilmshof” ausgerichtet und war gut besucht. Viele der interessierten Besucher sprachen aus, was wir uns derzeit noch nicht zumuten wollten: „Dat mööt ji för all Tieden fastholen”. Das haben wir hiermit getan.
+
+Die „Erinnerungen aus dem Dorf Fischbek” beginnen mit der ersten Ansiedlung im 16. Jahrhundert und enden vorwiegend in den 1930er Jahren mit der Eingliederung in die Hansestadt Hamburg. In einigen Artikeln ist teilweise auch in „uns Plattdütsch” geschrieben worden, um die Muttersprache der Fischbeker lebendig zu erhalten. Von Zeiten wird berichtet, in denen die Fischbeker ein noch sehr einfaches und entbehrungsreiches Leben führen mussten.
+
+Das Wissen über die Vergangenheit des Dorfes Fischbek weiter zu geben, ist uns besonders in der heutigen schnelllebigen Zeit mit den vielen technischen und sozialen Veränderungen ein besonderes Anliegen. Die alte Dorfgemeinschaft existiert schon lange nicht mehr, aber die Verbundenheit mit dem Heimatort ist vielfach noch vorhanden.
+
+Mit der Broschüre wird keine wissenschaftliche Dokumentation über das Dorf Fischbek vorgelegt. Es ist eine umfangreiche Information aus unserer Sicht, die wir  hiermit allen an der Vergangenheit interessierten Einwohnern zur Verfügung stellen möchten. Diese Dokumentation enthält neben allerlei Informationen zur „Fischbeker Vergangenheit” auch die von den Besuchern der Ausstellung mit großem Interesse betrachteten Fototafeln mit Beschreibung.
+
+Das Dorf Fischbek, Scheideholz und der westlich des Falkenbek (Scheebeek) liegende  Teil von Neugraben, die Ortsteile der ehemals selbständigen Gemeinde Fischbek,  sind heute zusammengewachsen. Sie sind mit dem östlichen Teil von Neugraben(ehemals Amt Harburg)zum Stadtteil Neugraben-Fischbek in der Freien und Hansestadt Hamburg geworden.
+
+Wir wünschen viel Freude beim Lesen und Betrachten der „Fischbeker Vergangenheit”. An dieser Stelle unseren großen Dank an alle, die uns mit tätiger und finanzieller Hilfe unterstützt haben.
+
+[Zum Seitenanfang](#Top)
+
 ## Entstehung des Dorfes Fischbek
 
 **1544:** Ansiedlung „VISCHBECKE” erstmals schriftlich erwähnt. Gegründet vom Amt Moisburg im Herzogtum Braunschweig-Lüneburg.
@@ -107,7 +138,7 @@ Die Scheune mit dem stirnseitig angebauten Toilettenhaus. Das Gebäude wurde 196
 
 ![](/img/Fischbek/T02-2-4.jpg)
 **1914: Hof Nr. 3 „Wilms”:**
-Ansicht von der  Hofeinfahrt an der Cuxhavener Straße mit der Stützmauer am „Beek“ auf den nach Süden gerichteten Wirtschaftsgiebel des Bauernhauses, sowie den Schweinestall mit Strohdach.
+Ansicht von der  Hofeinfahrt an der Cuxhavener Straße mit der Stützmauer am „Beek” auf den nach Süden gerichteten Wirtschaftsgiebel des Bauernhauses, sowie den Schweinestall mit Strohdach.
 
 ![](/img/Fischbek/T02-2-2.jpg)
 **1974: Hof Nr. 3 „Wilms”:**
@@ -127,7 +158,7 @@ Vor dem Wohnteil des ehemaligen Häuslingshauses, an der Südwestecke stehen die
 
 ![](/img/Fischbek/T02-4-1.jpg)
 **1938: Hof Nr. 3 „Wittens”:**
-Ansicht von der Dritten Meile auf den Ostgiebel mit der „Groot Döör“ zur kleinen Wirtschaftsdiele des ehemaligen Häuslingshauses. Das Wohn- und Wirtschaftsgebäude des „Wittens“ Hof ist 1904 abgebrannt und wurde nicht wieder aufgebaut. Die Kellergrube mit den großen Findlingen in den Wänden, sowie der strohgedeckte Schweinestall standen noch bis 1962 auf der Streuobstwiese.
+Ansicht von der Dritten Meile auf den Ostgiebel mit der „Groot Döör” zur kleinen Wirtschaftsdiele des ehemaligen Häuslingshauses. Das Wohn- und Wirtschaftsgebäude des „Wittens” Hof ist 1904 abgebrannt und wurde nicht wieder aufgebaut. Die Kellergrube mit den großen Findlingen in den Wänden, sowie der strohgedeckte Schweinestall standen noch bis 1962 auf der Streuobstwiese.
 
 ![](/img/Fischbek/T02-4-3.jpg)
 **1970: Hof Nr. 3 „Wittens”:**
