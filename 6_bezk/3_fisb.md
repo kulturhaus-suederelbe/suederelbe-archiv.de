@@ -35,6 +35,8 @@ Das Dorf Fischbek, Scheideholz und der westlich des Falkenbek (Scheebeek) liegen
 
 Wir wünschen viel Freude beim Lesen und Betrachten der „Fischbeker Vergangenheit”. An dieser Stelle unseren großen Dank an alle, die uns mit tätiger und finanzieller Hilfe unterstützt haben.
 
+Fischbek 2005
+
 [Zum Seitenanfang](#Top)
 
 ## <a name="Fototafeln"></a>Fototafeln
