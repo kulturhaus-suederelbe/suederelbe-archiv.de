@@ -37,6 +37,8 @@ Wir wünschen viel Freude beim Lesen und Betrachten der „Fischbeker Vergangenh
 
 Fischbek 2005
 
+![](/img/Fischbeker_Vergangenheit_IMG.jpg)
+
 [Zum Seitenanfang](#Top)
 
 ## <a name="Fototafeln"></a>Fototafeln
