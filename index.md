@@ -28,6 +28,8 @@ Ausstellung und einführender Themenabend am Donnerstag, 28. März 2019, 19:30 U
 
 Ein Abend mit den Autoren und ,Machern' der Tafeln zur Fischbeker Geschichte - Heinrich Butt, Manfred Heinrichs, Joachim Löffler und Hans Strüver, moderiert von Matthias Pfeifer.
 
+Die Ausstellung der Tafeln ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
+
 
 * * *
 
