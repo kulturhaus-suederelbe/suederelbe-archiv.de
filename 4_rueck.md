@@ -1,6 +1,7 @@
 # Veranstaltungsarchiv
 
 ## Themenabend - Fischbeker Vergangenheit - **"Dat mööt ji för alle Tieden fastholen!"**
+# Ausstellung und Gesprächsrunde
 
 Zur Eröffnung der Ausstellung der großformatigen Tafeln zur Fischbeker Geschichte waren am Donnerstag, 28. März 2019, 19:30 Uhr zahlreiche Gäste in den Stadtteilsaal des BGZ Süderelbe Am Johannisland gekommen. Die etwa 80 Personenn verfolgten interessiert das Gespräch zwischen Matthias Pfeifer, der den Abend moderierte, und den Autoren und ,Machern' der Tafeln Heinrich Butt, Manfred Heinrichs und Joachim Löffler. Der ebenfalls angekündigte Hans Strüver war aufgrund von Krankheit leider verhindert. Im Kreis der Autoren fehlte ebenfalls der Anfang des Jahres verstorbene Paster i.R. Altevogt. 
 Auf das anschließende Gespräch stimmte eine Diaschau ein, die Photos aus der Entstehungszeit der ursprünglichen Tafeln und der Ausstellung anläßlich des 100jährigen Bestehens des Fischbeker Schützenvereins im Jahr 2003 zeigte. Frisch digitalisiert und auf stabile Platten aufgezogen präsentieren sich die Tafeln nun in den Räumen des Kulturhauses.
