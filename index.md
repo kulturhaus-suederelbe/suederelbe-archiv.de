@@ -9,7 +9,8 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
-### Stadtteilrundgänge - Osterspaziergang in die Vergangenheit am Sa, 20. April 2019, 15:00 Uhr
+### Stadtteilrundgänge
+### Osterspaziergang in die Vergangenheit am Sa, 20. April 2019, 15:00 Uhr
 Der traditionelle, von Heiner Schultz geführte Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg findet in diesem Jahr nicht am 15.4. sondern am Sa, 20.4.2019 um 15:00 Uhr statt.
 Heiner Schultz berichtet über den Alltag im Lager und die Zwangsarbeit der 500 dort inhaftierten jüdischen Frauen in Neugraben und Umgebung. 
 
