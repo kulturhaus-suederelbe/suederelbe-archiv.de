@@ -1,5 +1,13 @@
 # Veranstaltungsarchiv
 
+## Themenabend - Fischbeker Vergangenheit - **"Dat mööt ji för alle Tieden fastholen!"**
+
+Zur Eröffnung der Ausstellung der großformatigen Tafeln zur Fischbeker Geschichte waren am Donnerstag, 28. März 2019, 19:30 Uhr zahlreiche Gäste in den Stadtteilsaal des BGZ Süderelbe Am Johannisland gekommen. Die etwa 80 Personenn verfolgten interessiert das Gespräch zwischen Matthias Pfeifer, der den Abend moderierte, und den Autoren und ,Machern' der Tafeln Heinrich Butt, Manfred Heinrichs und Joachim Löffler. Der ebenfalls angekündigte Hans Strüver war aufgrund von Krankheit leider verhindert. Im Kreis der Autoren fehlte ebenfalls der Anfang des Jahres verstorbene Paster i.R. Altevogt. 
+Auf das anschließende Gespräch stimmte eine Diaschau ein, die Photos aus der Entstehungszeit der ursprünglichen Tafeln und der Ausstellung anläßlich des 100jährigen Bestehens des Fischbeker Schützenvereins im Jahr 2003 zeigte. Frisch digitalisiert und auf stabile Platten aufgezogen präsentieren sich die Tafeln nun in den Räumen des Kulturhauses.
+Im Gespräch war allerlei zu der akribischen Erarbeitung der Tafeln, die ganz aus eigenen Mitteln der Autoren getragen wurde, zu erfahren, dazu gehörten auch einige amüsante Anekdoten. Erstaunlich ist der Detailreichtum mit dem die Geschichte der einzelnen Gehöfte und Familien dokumentier und dem Vergessen entrissen wurde.
+Der Ausstellung sind bis zum 9. Mai noch viele Besucher zu wünschen.
+
+
 ## Jüdische Jugend in Hamburg und ihre Ausbildung zur Auswanderung nach Palästina seit den 1920er Jahren - Das Schalom-Haus in Neugraben
 
 Vortrag im Rahmen der Harburger Gedenktagen 2018 am 15. November 2018 im BGZ-Süderelbe/ Kulturhaus Süderelbe - Stadtteilsaal, Am Johannisland 2
