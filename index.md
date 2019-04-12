@@ -30,7 +30,7 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 ### Themenabende 2019 - neue Termine
 
 ## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
-Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Do, 13. Juni 2019, 19:30 Uhr.
+Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese im Juni 2019.
 Weitere Details zu diesem Abend folgen noch.
 
 
