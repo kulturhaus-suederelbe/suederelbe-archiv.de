@@ -9,8 +9,12 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
-### Stadtteilrundgänge - Osterspaziergang in die Vergangenheit
-Gedankgang
+### Stadtteilrundgänge - Osterspaziergang in die Vergangenheit am Sa, 20. April 2019, 15:00 Uhr
+Der traditionelle, von Heiner Schultz geführte Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg findet in diesem Jahr nicht am 15.4. sondern am Sa, 20.4.2019 um 15:00 Uhr statt.
+Heiner Schultz berichtet über den Alltag im Lager und die Zwangsarbeit der 500 dort inhaftierten jüdischen Frauen in Neugraben und Umgebung. 
+
+Treffpunkt für diesen Rundgang ist die Bushaltestelle Neugrabener Heideweg (Linie 240 Richtung Waldfrieden). Die Teilnahme ist kostenlos. Festes Schuhwerk ist empfehlenswert, besonders bei nassem Wetter.
+
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
@@ -24,13 +28,12 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 
 ### Themenabende 2019 - neue Termine
 
-Ausstellung und einführender Themenabend am Donnerstag, 28. März 2019, 19:30 Uhr - Stadtteilsaal BGZ Süderelbe, Am Johannisland 2
+## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
+Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Do, 13. Juni 2019, 19:30 Uhr.
+Weitere Details zu diesem Abend folgen noch.
 
-## Fischbeker Vergangenheit 
-## **"Dat mööt ji för alle Tieden fastholen!"**
 
-Ein Abend mit den Autoren und ,Machern' der Tafeln zur Fischbeker Geschichte - Heinrich Butt, Manfred Heinrichs, Joachim Löffler und Hans Strüver, moderiert von Matthias Pfeifer.
-
+## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
 Die Ausstellung der Tafeln ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
 
 
