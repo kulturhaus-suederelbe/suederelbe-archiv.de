@@ -9,9 +9,12 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
+### Stadtteilrundgänge - Osterspaziergang in die Vergangenheit
+Gedankgang
+
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 6. April 2019, von 10:00 bis 12:00 Uhr
+Sa, 4. Mai 2019, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
