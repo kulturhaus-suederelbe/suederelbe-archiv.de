@@ -2,7 +2,8 @@
 
 ![](/img/wsb_180x81_500J_Neugraben.png)
 
-Neugraben-Jubiläumsbuch - auch 2018 gibt es noch restliche Exemplare!
+Neugraben-Jubiläumsbuch - es gibt noch restliche Exemplare!
+(Erhältlich über Bobeck Medienmanagement in Hamburg-Neugraben.)
 
 In einer Gerichtsakte aus dem Jahr 1553 wird erstmals der Name Gödeke Tiedemann erwähnt. Dieser erklärt darin, dass er seit 37 Jahren in
 Neugraben lebt. Daraus ergibt sich das Jahr 1516 als Beleg für eine dauerhafte Besiedelung im heutigen Neugraben.
