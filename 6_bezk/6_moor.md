@@ -20,4 +20,5 @@ vorhanden (Signatur B0040/Schrank 1) und kann vor Ort eingesehen werden.
 
 [Kirche Moorburg](https://kirchesuederelbe.de/moorburg)
 Informationen zur St.-Maria-Magdalena-Kirche zu Moorburg. Im Gemeindebrief werden regelmäßig auch Beiträge zur Moorburger Geschichte veröffentlicht.
+
 Über diesen Link erreichen Sie auch eine Darstellung der Geschichte der Moorburger Schanze aus der Zeit der französischen Besatzung zur Zeit Napoleons I.
