@@ -12,6 +12,7 @@ Die Gemeinden Hasselwerder und Nincop wurden im Jahr 1929 zu Neuenfelde zusammen
 # Literatur zu Neuenfelde
 
 Monika Genz (Hg.), *Der Baum Neuenfelde*, 2010. (im Archiv vorhanden)
+Gustav Fock (Hg.), *900 Jahre Neuenfelde vormals Hasselwerder*, 1959. (im Archiv vorhanden)
 
 ## Weblinks zu Neuenfelde
 [Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neuenfelde) (Link hinzugefügt am 24.6.2018)
