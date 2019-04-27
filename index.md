@@ -10,12 +10,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 * * *
 
 ### Stadtteilrundgänge
-### Osterspaziergang in die Vergangenheit am Sa, 20. April 2019, 15:00 Uhr
-Der traditionelle, von Heiner Schultz geführte Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg findet in diesem Jahr nicht am 15.4. sondern am Sa, 20.4.2019 um 15:00 Uhr statt.
-Heiner Schultz berichtet über den Alltag im Lager und die Zwangsarbeit der 500 dort inhaftierten jüdischen Frauen in Neugraben und Umgebung. 
-
-Treffpunkt für diesen Rundgang ist die Bushaltestelle Neugrabener Heideweg (Linie 240 Richtung Waldfrieden). Die Teilnahme ist kostenlos. Festes Schuhwerk ist empfehlenswert, besonders bei nassem Wetter.
-
+Rundgang Dorfkern Neugraben am Sa, 8. Juni 2019, 14:30 Uhr
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
