@@ -1,5 +1,13 @@
 # Veranstaltungsarchiv
 
+
+### Osterspaziergang in die Vergangenheit am Sonnabend, 20. April 2019, 15:00 Uhr
+Der traditionelle, von Heiner Schultz geführte Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg fand in diesem Jahr am Sonnabend, dem 20. April 2019 um 15:00 Uhr statt.
+Heiner Schultz berichtete über die Geschichte des Lagers, die ihren Anfang in der Planung für die monumentale Elbbrücke der "Führerstadt" Hamburg nahm, über den Alltag in diesem Außenlager des KZ Neuengamme und die Zwangsarbeit der 500 dort inhaftierten jüdischen Frauen in Neugraben und Umgebung. Auch die wenigen Kontakte zur Zivilbevölkerung kamen zur Sprache. Ausführlich wurde auch berichtet, wie es gelang, ab den 1980er Jahren den Kontakt zu schließlich insgesamt 46 überlebenden Frauen aufzubauen, von denen eine der letzten noch im Januar 2019 nach Hamburg kommen konnte.
+
+Bei sonnigem und trockenem Wetter hatten sich 35 Interessierte eingefunden, die den Gedenkgang über das ehemalige Lagergelände mitmachten. Ihren Abschluss fand die Veranstaltung an dem großen Findling im Süden des Geländes
+
+
 ## Themenabend - Fischbeker Vergangenheit - **"Dat mööt ji för alle Tieden fastholen!"**
 ## Ausstellung und Gesprächsrunde (28.3. bis 9.5.2019)
 
