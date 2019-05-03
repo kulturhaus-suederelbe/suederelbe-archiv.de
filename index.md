@@ -24,8 +24,8 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 ## Historischer Dorfkern Neugraben
 Am Sonnabend, dem 8. Juni 2019 ab 14:30 Uhr findet wieder unser Rundgang durch den alten Dorfkern Neugrabens statt.
 Mitglieder des Süderelbe-Archivs führen Sie zu markanten Punkten der dörflichen Geschichte Neugrabens.
-Treffpunkt ist an der Nordseite der S-Bahn Neugraben, gegenüber dem Ausgang des P+R-Parkhause auf dem Vorplatz des BGZ Süderelbe.
-Wir bitten um Anmeldung unter info@suederelbe-archiv.de. Die Teilnahme ist kostenfrei, jedoch auf 25 Personen begrenzt. Dauer: etwa zwei Stunden.
+Treffpunkt ist an der Nordseite des S-Bahnhofs Neugraben, gegenüber dem Ausgang des P+R-Parkhauses auf dem Vorplatz des BGZ Süderelbe.
+Wir bitten um Anmeldung unter info@suederelbe-archiv.de. Die Teilnahme ist kostenfrei, jedoch auf 25 Personen begrenzt. Der Rundgang dauert etwa zwei Stunden.
 
 ## Stolpersteine in Süderelbe
 Ein Rundgang zu Gedenkorten mit Stolpersteine für Opfer des Nationalsozialismus in Süderelbe findet am Sonnabend, 22. Juni 2019 um 15:00 Uhr statt. Der Rundgang wird vom Süderelbe-Archiv in Kooperation mit der Initiative Gedenken in Harburg durchgeführt und von Vertretern beider Gruppen gestaltet.
@@ -35,8 +35,8 @@ Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenber
 ### Themenabende 2019 - neue Termine
 
 ## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
-Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese im Juni 2019.
-Weitere Details zu diesem Abend folgen noch.
+Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019.
+Weitere Details zu diesem Abend folgen an dieser Stelle.
 
 
 ## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
@@ -51,9 +51,9 @@ Die Ausstellung der Tafeln ist nach dem 28. März noch bis einschließlich 9. Ma
 
 ## Altenwerder Klönschnack 2019
 
-An dieser Stelle weisen wir darauf hin, dass am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr - wieder ein Altenwerder Klönschnack stattfindet, ausgerichtet vom Förderverein zur Erhaltung der St.-Gertrud-Kirche Altenwerder. 
+Am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr, findet der 7. Altenwerder Klönschnack statt, ausgerichtet vom Förderverein zur Erhaltung der St.-Gertrud-Kirche Altenwerder. 
 
-Alles nötige hierzu erfahren Sie zu gegebener Zeit unter: https://kirchesuederelbe.de/altenwerder/
+Alles nötige hierzu erfahren Sie unter: https://kirchesuederelbe.de/gottesdienst-und-kloenschnak/
 
 * * *
 
