@@ -53,7 +53,7 @@ Die Ausstellung der Tafeln ist nach dem 28. März noch bis einschließlich 9. Ma
 
 Am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr, findet der 7. Altenwerder Klönschnack statt, ausgerichtet vom Förderverein zur Erhaltung der St.-Gertrud-Kirche Altenwerder. 
 
-Alles nötige hierzu erfahren Sie unter: https://kirchesuederelbe.de/gottesdienst-und-kloenschnak/
+Alles nötige hierzu erfahren Sie unter [Altenwerder Klönschnack] (https://kirchesuederelbe.de/gottesdienst-und-kloenschnak/)
 
 * * *
 
