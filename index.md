@@ -40,7 +40,7 @@ Weitere Details zu diesem Abend folgen an dieser Stelle.
 
 
 ## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
-Die Ausstellung der Tafeln ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
+Die [Ausstellung der Tafeln](https://www.kulturhaus-suederelbe.de/seite/387726/ausstellungen.html) ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
 (Bei Interesse an einem Exemplar der Neuauflage des Fischbek-Buchs können Sie sich vor Ort eintragen.)
 
 * * *
