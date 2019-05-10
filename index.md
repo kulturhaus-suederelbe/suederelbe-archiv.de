@@ -35,8 +35,9 @@ Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenber
 ### Themenabende 2019 - neue Termine
 
 ## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
-Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019.
-Weitere Details zu diesem Abend folgen an dieser Stelle.
+Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019 um 19:30 Uhr.
+Der Abend findet vor Ort in Moisburg in den Räumen der Moisburger Wassermühle statt.
+Bei Interesse bitten wir um Anmeldung unter: info@suederelbe-archiv.de 
 
 
 ## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
