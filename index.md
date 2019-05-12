@@ -22,10 +22,12 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 
 ### Stadtteilrundgänge
 ## Historischer Dorfkern Neugraben
-Am Sonnabend, dem 8. Juni 2019 ab 14:30 Uhr findet wieder unser Rundgang durch den alten Dorfkern Neugrabens statt.
-Mitglieder des Süderelbe-Archivs führen Sie zu markanten Punkten der dörflichen Geschichte Neugrabens.
-Treffpunkt ist an der Nordseite des S-Bahnhofs Neugraben, gegenüber dem Ausgang des P+R-Parkhauses auf dem Vorplatz des BGZ Süderelbe.
-Wir bitten um Anmeldung unter info@suederelbe-archiv.de. Die Teilnahme ist kostenfrei, jedoch auf 25 Personen begrenzt. Der Rundgang dauert etwa zwei Stunden.
+
+Auch 2019 bieten wir unseren Rundgang durch das alte Neugrabener Dorf an. Er findet statt am Sonnabend, 8. Juni 2019. Treffpunkt ist um 14:30 Uhr auf dem Vorplatz des BGZ Süderelbe gegenüber dem Nordausgang des P+R-Hauses am S-Bahnhof Neugraben.
+
+Mitglieder des Süderelbe-Archivs führen Sie zu markanten Punkten der dörflichen Geschichte Neugrabens. Das Gebiet an Francoper Straße und Im Neugrabener Dorf gehört zu den am besten erhaltenen Dorfkernen auf Hamburger Stadtgebiet.
+
+Bitte melden Sie sich unbedingt an unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Die Teilnahme ist kostenfrei, jedoch auf 24 Personen begrenzt. Der Rundgang dauert etwa zwei Stunden. --- Es gibt noch freie Plätze!
 
 ## Stolpersteine in Süderelbe
 Ein Rundgang zu Gedenkorten mit Stolpersteine für Opfer des Nationalsozialismus in Süderelbe findet am Sonnabend, 22. Juni 2019 um 15:00 Uhr statt. Der Rundgang wird vom Süderelbe-Archiv in Kooperation mit der Initiative Gedenken in Harburg durchgeführt und von Vertretern beider Gruppen gestaltet.
