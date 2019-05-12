@@ -1,6 +1,12 @@
 # Veranstaltungsarchiv
 
 
+## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
+Die [Ausstellung der Tafeln](https://www.kulturhaus-suederelbe.de/seite/387726/ausstellungen.html) ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
+(Bei Interesse an einem Exemplar der Neuauflage des Fischbek-Buchs können Sie sich vor Ort eintragen.)
+Die Ausstellung stieß auf großes Interesse und war sehr gut besucht. Am 10. Mai wurden die Tafeln wieder abgebaut und werden nun wieder eingelagert - bis zur nächsten Ausstellung!
+
+
 ### Osterspaziergang in die Vergangenheit am Sonnabend, 20. April 2019, 15:00 Uhr
 Der traditionelle, von Heiner Schultz geführte Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg fand in diesem Jahr am Sonnabend, dem 20. April 2019 um 15:00 Uhr statt.
 Heiner Schultz berichtete über die Geschichte des Lagers, die ihren Anfang in der Planung für die monumentale Elbbrücke der "Führerstadt" Hamburg nahm, über den Alltag in diesem Außenlager des KZ Neuengamme und die Zwangsarbeit der 500 dort inhaftierten jüdischen Frauen in Neugraben und Umgebung. Auch die wenigen Kontakte zur Zivilbevölkerung kamen zur Sprache. Ausführlich wurde auch berichtet, wie es gelang, ab den 1980er Jahren den Kontakt zu schließlich insgesamt 46 überlebenden Frauen aufzubauen, von denen eine der letzten noch im Januar 2019 nach Hamburg kommen konnte.
