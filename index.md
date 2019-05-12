@@ -29,6 +29,7 @@ Mitglieder des Süderelbe-Archivs führen Sie zu markanten Punkten der dörflich
 
 Bitte melden Sie sich unbedingt an unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Die Teilnahme ist kostenfrei, jedoch auf 24 Personen begrenzt. Der Rundgang dauert etwa zwei Stunden. --- Es gibt noch freie Plätze!
 
+
 ## Stolpersteine in Süderelbe
 Ein Rundgang zu Gedenkorten mit Stolpersteine für Opfer des Nationalsozialismus in Süderelbe findet am Sonnabend, 22. Juni 2019 um 15:00 Uhr statt. Der Rundgang wird vom Süderelbe-Archiv in Kooperation mit der Initiative Gedenken in Harburg durchgeführt und von Vertretern beider Gruppen gestaltet.
 Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenbergsweg. Die Teilnahme ist kostenlos. Dauer: etwa anderthalb Stunden.
@@ -38,8 +39,9 @@ Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenber
 
 ## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
 Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019 um 19:30 Uhr.
+
 Der Abend findet vor Ort in Moisburg in den Räumen der Moisburger Wassermühle statt.
-Bei Interesse bitten wir um Anmeldung unter: info@suederelbe-archiv.de 
+Da die Anzahl der Plätze begrenzt ist, bitten wir bei Interesse um Anmeldung unter: [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Die Teilnahme an diesem Abend ist für Sie kostenfrei (Bewirtung gegen Entgelt).
 
 
 ## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
