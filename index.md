@@ -49,7 +49,7 @@ Prof. Wiese wird am Beispiel Moisburg aufzeigen, wie diese frühen ,Kraftwerke�
 
 Sie sind herzlich eingeladen, an dem Vortrag mit anschließender Begehung der Mühle teilzunehmen. Melden Sie Ihr Interesse an der Teilnahme gern unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) an, dies hilft uns bei der Planung. Die Teilnahme an diesem Abend ist für Sie kostenfrei.
 
-Wir freuen uns auf rege Teilnahme an diesem Themenabend in den athmosphärischen Räumen der Moisburger Mühle!
+Wir freuen uns auf rege Teilnahme an diesem Themenabend in den atmosphärischen Räumen der Moisburger Mühle!
 
 
 * * *
