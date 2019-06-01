@@ -1,5 +1,15 @@
 # Veranstaltungsarchiv
 
+* * *
+
+## Altenwerder Klönschnack 2019
+
+Am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr, findet der 7. Altenwerder Klönschnack in und vor der Altenwerder Kirche statt. Er wird vom Förderverein zur Erhaltung der St.-Gertrud-Kirche Altenwerder ausgerichtet. 
+
+Alles Nötige hierzu erfahren Sie unter [Altenwerder Klönschnack](https://kirchesuederelbe.de/gottesdienst-und-kloenschnak/).
+
+Über den Altenwerder Klönschnack wurde mit einem längeren Artikel im Hamburger Abendblatt berichtet. Es kamen um die 500 Besucher zur Altenwerder Kirche.
+
 
 ## Fischbeker Vergangenheit - "Dat mööt ji för alle Tieden fastholen!" - Ausstellung
 Die [Ausstellung der Tafeln](https://www.kulturhaus-suederelbe.de/seite/387726/ausstellungen.html) ist nach dem 28. März noch bis einschließlich 9. Mai zu den üblichen Öffnungszeiten des Kulturhauses zu sehen.
