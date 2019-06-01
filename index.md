@@ -56,13 +56,7 @@ Wir freuen uns auf rege Teilnahme an diesem Themenabend in den atmosphärischen 
 
 **Der Eintritt zu unseren Themenabenden bleibt frei, Spenden sind uns willkommen.**
 
-* * *
 
-## Altenwerder Klönschnack 2019
-
-Am Sonntag, 26. Mai 2019, von 9:30 bis 17:00 Uhr, findet der 7. Altenwerder Klönschnack in und vor der Altenwerder Kirche statt. Er wird vom Förderverein zur Erhaltung der St.-Gertrud-Kirche Altenwerder ausgerichtet. 
-
-Alles Nötige hierzu erfahren Sie unter [Altenwerder Klönschnack](https://kirchesuederelbe.de/gottesdienst-und-kloenschnak/).
 
 * * *
 
