@@ -12,7 +12,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Themenabende 2019 - neue Termine
 
-## Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten
+## **Themenabend zu Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten**
 Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019 um 19:30 Uhr.
 
 Der Abend findet vor Ort in Moisburg in den Räumen der Moisburger Wassermühle statt.
