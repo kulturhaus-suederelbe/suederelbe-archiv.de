@@ -12,19 +12,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 ### Themenabende 2019 - neue Termine
 
-## **Historische Mühlen im Landkreis Harburg und seinen angrenzenden Gebieten am Beispiel Moisburg**
-Ein Abend im Mühlenmuseum Moisburg mit Prof. Dr. Rolf Wiese am Donnerstag, dem 13. Juni 2019 um 19:30 Uhr.
-
-Der Abend findet vor Ort in Moisburg in den Räumen der Moisburger Wassermühle statt.
-
-Zwischen Harburg und Moisburg existierten seit dem Mittelalter zahlreiche Mühlen, von denen heute nur wenige noch erhalten oder gar noch funktionstüchtig sind. Eine davon ist die ehemalige Amtswassermühle, die als Zwangsmühle das Korn der Bauern im Amt Moisburg mahlte. Etwa die Hälfte der Bauern des historischen Bezirks Süderelbe mußte daher ihr Getreide nach Moisburg bringen, die andere war an die Harburger Außenmühle gebunden. 
-
-Neben den Getreidemühlen gab es auch – ein Phänomen der Frühindustrialisierung – Mühlen für zahlreiche andere Zwecke und Gewerbezweige: Gewürzmühlen, Walkmühlen und auch Papiermühlen, die besonders in Moisburg Bedeutung erlangten. 
-Prof. Wiese wird am Beispiel Moisburg aufzeigen, wie diese frühen ,Kraftwerke‘ dazu beitrugen, technische und logistische Innovation auf lokaler Ebene voranzutreiben. Wir werden uns dazu die konkreten Gegebenheiten vor Ort in der Wassermühle ansehen. Dabei wird auch Zeit für Fragen und Antworten aus dem Besucherkreis sein.
-
-Sie sind herzlich eingeladen, an dem Vortrag mit anschließender Begehung der Mühle teilzunehmen. Melden Sie Ihr Interesse an der Teilnahme gern unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) an, dies hilft uns bei der Planung. Die Teilnahme an diesem Abend ist für Sie kostenfrei.
-
-Wir freuen uns auf rege Teilnahme an diesem Themenabend in den atmosphärischen Räumen der Moisburger Mühle!
+Ab September 2019 an dieser Stelle neue Termine!
 
 
 * * *
