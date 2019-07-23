@@ -43,7 +43,7 @@ Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenber
 
 ### Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 6. Juli 2019, von 10:00 bis 12:00 Uhr
+Sa, 5. September 2019, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
