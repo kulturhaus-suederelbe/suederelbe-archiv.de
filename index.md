@@ -9,11 +9,18 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
+Das Süderelbe-Archiv beteiligt sich in diesem Jahr mit einem eigenen Stand auf dem Stadtteilfest "Neugraben Erleben" Sonntag, 8. September 2019, 11:00-17:00 Uhr). 
+Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik, ein Bilderrätsel zu Neugraben, Sütterlin-Mitmachaktionen und ein Kleines Erzähltheater (Kamishibai) zum legendären Kiepenkerl!
+
+
+* * *
 
 ### Themenabende 2019 - neue Termine
 
 Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
 Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
+
+Ebenfalls im September wird es eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft der 500 gefangenen Frauen im damaligen Außenlager des KZ Neuengamme am Falkenbergsweg geben. Die genauen Daten zu Zeit und Ort werden hier noch bekannt gegeben.
 
 
 * * *
@@ -25,6 +32,7 @@ Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben 
 
 ### Stadtteilrundgänge
 
+... sind wieder für 2020 geplant, sie werden dann wieder an dieser Stelle angekündigt.
 
 
 * * *
