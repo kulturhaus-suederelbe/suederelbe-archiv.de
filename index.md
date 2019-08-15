@@ -24,18 +24,7 @@ Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben 
 * * *
 
 ### Stadtteilrundgänge
-## Historischer Dorfkern Neugraben - Rundgang
 
-Auch 2019 bieten wir unseren Rundgang durch das alte Neugrabener Dorf an. Er findet statt am Sonnabend, 8. Juni 2019. Treffpunkt ist um 14:30 Uhr auf dem Vorplatz des BGZ Süderelbe gegenüber dem Nordausgang des P+R-Hauses am S-Bahnhof Neugraben.
-
-Mitglieder des Süderelbe-Archivs führen Sie zu markanten Punkten der dörflichen Geschichte Neugrabens. Das Gebiet an Francoper Straße und Im Neugrabener Dorf gehört zu den am besten erhaltenen Dorfkernen auf Hamburger Stadtgebiet.
-
-Bitte melden Sie sich unbedingt an unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Die Teilnahme ist kostenfrei, jedoch auf 24 Personen begrenzt. Der Rundgang dauert etwa zwei Stunden. --- Es gibt noch freie Plätze!
-
-
-## Stolpersteine in Süderelbe - Rundgang
-Ein Rundgang zu Gedenkorten mit Stolpersteine für Opfer des Nationalsozialismus in Süderelbe findet am Sonnabend, 22. Juni 2019 um 15:00 Uhr statt. Der Rundgang wird vom Süderelbe-Archiv in Kooperation mit der Initiative Gedenken in Harburg durchgeführt und von Vertretern beider Gruppen gestaltet.
-Treffpunkt ist die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenbergsweg. Die Teilnahme ist kostenlos. Dauer: etwa anderthalb Stunden.
 
 
 * * *
