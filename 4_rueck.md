@@ -20,6 +20,21 @@ Wir freuen uns auf rege Teilnahme an diesem Themenabend in den atmosphärischen 
 
 * * *
 
+## Historischer Dorfkern Neugraben - Rundgang
+
+Auch 2019 war wieder Gelegenheit, an unserem Rundgang durch das alte Neugrabener Dorf teilzunehmen. Er fand am Sonnabend, 8. Juni 2019, statt. Treffpunkt war um 14:30 Uhr auf dem Vorplatz des BGZ Süderelbe gegenüber dem Nordausgang des P+R-Hauses am S-Bahnhof Neugraben.
+
+Mehr als 20 Teilnehmer nahmen auch diesmal wieder bei günstigem Wetter teil.
+
+
+## Stolpersteine in Süderelbe - Rundgang
+Ein Rundgang zu Gedenkorten mit Stolpersteine für Opfer des Nationalsozialismus in Süderelbe fand am Sonnabend, 22. Juni 2019 um 15:00 Uhr statt. Der Rundgang wurde vom Süderelbe-Archiv in Kooperation mit der Initiative Gedenken in Harburg durchgeführt und von Vertretern beider Gruppen gestaltet.
+Mit etwa zehn Personen nahm nur eine kleine Gruppe teil, für die Personen, derer gedacht wurde, spielte dies jedoch keine große Rolle, da das Hauptanliegen ist, ihrer überhaupt zu gedenken.
+
+Treffpunkt war wie üblich die Haltestelle Neugrabener Heideweg (Bus Linie 240) am Falkenbergsweg. 
+
+* * *
+
 
 ## Altenwerder Klönschnack 2019
 
