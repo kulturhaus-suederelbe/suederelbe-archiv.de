@@ -11,14 +11,15 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 Das Süderelbe-Archiv beteiligt sich in diesem Jahr mit einem eigenen Stand am Stadtteilfest
 
-## **"Neugraben Erleben" (Sonntag, 8. September 2019, 11:00-17:00 Uhr)**
+## **"Neugraben Erleben"
+Sonntag, 8. September 2019, 11:00-17:00 Uhr**
 
 Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik, ein Bilderrätsel zu Neugraben, Sütterlin-Mitmachaktionen und ein Kleines Erzähltheater (Kamishibai) zum legendären Kiepenkerl!
 
 
 * * *
 
-### Themenabende 2019 - neue Termine
+## Themenabende 2019 - neue Termine
 
 Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
 Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
@@ -33,7 +34,7 @@ Ebenfalls im September wird es eine Gedenkveranstaltung zum 75. Jahrestag der An
 
 * * *
 
-### Stadtteilrundgänge
+## Stadtteilrundgänge
 
 ... sind wieder für 2020 geplant, sie werden dann wieder an dieser Stelle angekündigt.
 
@@ -41,7 +42,7 @@ Ebenfalls im September wird es eine Gedenkveranstaltung zum 75. Jahrestag der An
 * * *
 
 
-### Offener Treffpunkt (in der Bücherhalle Neugraben)
+## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
 Sa, 7. September 2019, von 10:00 bis 12:00 Uhr
 
@@ -53,7 +54,7 @@ Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
 
 * * *
 
-## Aufruf - Ihre Dokumente, Ihre Geschichte
+### Aufruf - Ihre Dokumente, Ihre Geschichte
 
 Wir sammeln und archivieren historische Fotos, Karten, Bücher, Zeitungen
 und Berichte von Zeitzeugen aus den Ortsteilen Altenwerder, Cranz,
