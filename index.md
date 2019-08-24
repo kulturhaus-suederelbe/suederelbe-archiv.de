@@ -26,7 +26,7 @@ Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben 
 
 ## **Gedenkveranstaltung am Do, 19. September 2019** 
 Am Donnerstag, dem 19. September um 19:30 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in das eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt.
-Es wird aus Briefen und Tagebüchern der betroffenen Frauen vorgelesen. Die Veranstaltung ist eine Kooperation mit der Iditiative Gedenken in Harburg und der Geschichtswerkstatt Harburg und findet im BGZ am Johnnisland 2 (Stadtteilsaal bzw. JoLa) statt.
+Es wird aus Briefen und Tagebüchern der betroffenen Frauen vorgelesen. Die Veranstaltung ist eine Kooperation mit der Iditiative Gedenken in Harburg und der Geschichtswerkstatt Harburg und findet im Begegnungsraum "JoLa" im BGZ Süderelbe, Am Johnnisland 2 statt.
 
 
 * * *
