@@ -28,7 +28,10 @@ Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben 
 **75 Jahre Außenlager Falkenbergsweg**
 
 Am Donnerstag, dem 19. September um 19:30 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt.
-Es wird aus Briefen und Tagebüchern der betroffenen Frauen vorgelesen. Die Veranstaltung ist eine Kooperation mit der Iditiative Gedenken in Harburg und der Geschichtswerkstatt Harburg und findet im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johnnisland 2 statt.
+
+Es wird aus Briefen und Tagebüchern der betroffenen Frauen vorgelesen. 
+
+Die Veranstaltung ist eine Kooperation mit der Iditiative Gedenken in Harburg und der Geschichtswerkstatt Harburg und findet im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johnnisland 2 statt.
 
 
 * * *
