@@ -24,6 +24,9 @@ Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik,
 Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
 Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
 
+
+* * *
+
 ## **Gedenkveranstaltung am Do, 19. September 2019** 
 **75 Jahre Außenlager Falkenbergsweg**
 
