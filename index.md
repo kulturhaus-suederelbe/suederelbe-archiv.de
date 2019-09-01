@@ -19,22 +19,22 @@ Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik,
 
 * * *
 
+## **Gedenkveranstaltung am Do, 19. September 2019** 
+**75 Jahre Außenlager Falkenbergsweg**
+
+Am Donnerstag, dem 19. September um 19:00 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt.
+
+Mitglieder der ausrichtenden Organisationen lesen aus Briefen und Berichten der betroffenen Frauen sowie aus Erinnerungsbüchern. 
+
+Die Veranstaltung findet in Kooperation mit der Initiative Gedenken in Harburg und der Geschichtswerkstatt Harburg statt, im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johnnisland 2.
+
+* * *
+
 ## **Themenabende 2019 - neue Termine**
 
 Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
 Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
-
-
-* * *
-
-## **Gedenkveranstaltung am Do, 19. September 2019** 
-**75 Jahre Außenlager Falkenbergsweg**
-
-Am Donnerstag, dem 19. September um 19:30 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt.
-
-Es wird aus Briefen und Tagebüchern der betroffenen Frauen vorgelesen. 
-
-Die Veranstaltung ist eine Kooperation mit der Iditiative Gedenken in Harburg und der Geschichtswerkstatt Harburg und findet im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johnnisland 2 statt.
+Näheres hierzu folgt noch an dieser Stelle.
 
 
 * * *
