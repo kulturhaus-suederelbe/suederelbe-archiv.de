@@ -12,7 +12,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 Das Süderelbe-Archiv beteiligt sich in diesem Jahr mit einem eigenen Stand am Stadtteilfest
 
 ## **"Neugraben Erleben"**
-**Sonntag, 8. September 2019, 11:00-17:00 Uhr**
+**Sonntag, 8. September 2019, 12:00-17:00 Uhr**
 
 Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik, ein Bilderrätsel zu Neugraben, Sütterlin-Mitmachaktionen und ein Kleines Erzähltheater (Kamishibai) zum legendären Kiepenkerl!
 
