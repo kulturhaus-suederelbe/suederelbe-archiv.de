@@ -22,11 +22,13 @@ Besuchen Sie uns zwischen Findling und Marktapotheke! Wir bieten Drehorgelmusik,
 ## **Gedenkveranstaltung am Do, 19. September 2019** 
 **75 Jahre Außenlager Falkenbergsweg**
 
-Am Donnerstag, dem 19. September um 19:00 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt.
+Am Donnerstag, dem 19. September um 19:00 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt. Am 13. September 1944 wurden 500 Frauen und Mädchen im Alter zwischen 15 und 45 Jahren vom Außenlager Dessauer Ufer des KZ Neuengamme an den Falkenbergsweg überführt. Dort bestand schon seit längerem ein Kriegsgefangenen- und ein Zwangsarbeiterlager. Die Frauen wurden parallel zu diesen in hölzernen Baracken untergebracht. Von dort aus hatten sie täglich Arbeitseinsätze in Betrieben in Neugraben und Fischbek sowie anderswo in Süderelbe. Sie wurden auch zu Räumungsarbeiten nach Bombenangriffen, oft auch im Harburger Industriegebiet, eingesetzt. 
 
-Mitglieder der ausrichtenden Organisationen lesen aus Briefen und Berichten der betroffenen Frauen sowie aus Erinnerungsbüchern. 
+Mitglieder der ausrichtenden Organisationen lesen aus nachgelassenen Briefen und Berichten der betroffenen Frauen sowie aus Erinnerungsbüchern und Augenzeugenerzählungen. 
 
-Die Veranstaltung findet in Kooperation mit der Initiative Gedenken in Harburg und der Geschichtswerkstatt Harburg statt, im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johnnisland 2.
+Die Veranstaltung findet in Kooperation mit der Initiative Gedenken in Harburg und der Geschichtswerkstatt Harburg statt.
+
+Beginn ist um 19:00 Uhr im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johannisland 2.
 
 * * *
 
