@@ -7,12 +7,12 @@ steht das Archiv im Rahmen eines sogenannten Offenen Treffpunkts allen Interessi
 
 Regelmäßig trifft sich eine Geschichtsgruppe, in der Regel am 2. Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
-Arbeitsgruppen-Termine im zweiten Halbjahr 2019: 12. September, 10. Oktober, 7. November und 12. Dezember. --- Kein Termin im August.
+Arbeitsgruppen-Termine im zweiten Halbjahr 2019: 12. September, 10. Oktober, 14. November und 12. Dezember. --- Kein Termin im August.
 
 
 ## Offener Treffpunkt
 
-Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
+Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle mindestens ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
 
 Offene Treffpunkte im zweiten Halbjahr 2019: 7. September, 5. Oktober, 2. November und 7. Dezember. --- Kein Termin im August.
 
