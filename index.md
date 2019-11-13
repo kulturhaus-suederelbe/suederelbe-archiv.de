@@ -11,12 +11,12 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 
 
-## **Themenabende 2019 - neue Termine**
+## **Themenabende 2020 - neue Termine**
 
-Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
-Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
-Näheres hierzu folgt noch an dieser Stelle.
+Die Themen für die erste Jahreshälfte 2020 sind unter anderem:
 
+Der Harburger Blutmontag 1920 und die Arbeit der Frauen im Fachwerkhaus des frühen 19. Jahrhunderts.
+Details folgen an dieser Stelle.
 
 * * *
 
