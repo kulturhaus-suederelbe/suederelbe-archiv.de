@@ -1,12 +1,11 @@
 # Veranstaltungsarchiv
 
-Das Süderelbe-Archiv beteiligte sich in diesem Jahr mit einem eigenen Stand am Stadtteilfest
-## **"Neugraben Erleben"**, am **Sonntag, 8. September 2019 von 12:00-17:00 Uhr**
+Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
+Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
+(...)
 
-Unsere Aktionen zogen zahlreiche Besucher an: Drehorgelmusik, ein Bilderrätsel zu Neugraben, Sütterlin-Mitmachaktionen und ein Kleines Erzähltheater (Kamishibai) zum legendären Kiepenkerl erfreuten große und kleine Besucher.
++ + +
 
-
-* * *
 
 ## **Gedenkveranstaltung am Do, 19. September 2019** 
 **75 Jahre Außenlager Falkenbergsweg**
@@ -20,6 +19,14 @@ Die Veranstaltung findet in Kooperation mit der Initiative Gedenken in Harburg u
 Beginn ist um 19:00 Uhr im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johannisland 2.
 
 Die Veranstalter hatten eine beeindruckende Auswahl an Dokumenten ausgesucht, die - auf eindringliche Weise vorgetragen - ihre Wirkung auf die etwa 60 Zuhörerinnen und Zuhörer nicht verfehlten. Im Anschluss entspann sich eine angeregte Diskussion, auch eine Gruppe von Oberstufenschülerinnen und -schülern, die ein Projekt zum Gedenken an die Frauen und Mädchen planen, war anwesend.
+
+
+* * *
+
+Das Süderelbe-Archiv beteiligte sich in diesem Jahr mit einem eigenen Stand am Stadtteilfest
+## **"Neugraben Erleben"**, am **Sonntag, 8. September 2019 von 12:00-17:00 Uhr**
+
+Unsere Aktionen zogen zahlreiche Besucher an: Drehorgelmusik, ein Bilderrätsel zu Neugraben, Sütterlin-Mitmachaktionen und ein Kleines Erzähltheater (Kamishibai) zum legendären Kiepenkerl erfreuten große und kleine Besucher.
 
 
 * * *
