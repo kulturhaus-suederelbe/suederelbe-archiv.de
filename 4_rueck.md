@@ -1,20 +1,20 @@
 # Veranstaltungsarchiv
 
-Der dritte Themenabend in diesem Jahr findet am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
-Unter dem Titel "Vom NF 15 zu NF 65" wird die Siedlungsgeschichte von Neugraben und Fischbek dargestellt.
-(...)
+Der dritte und letzte Themenabend in diesem Jahr fand am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
+Unter dem Titel "Vom NF 15 zu NF 65" wurde die Siedlungsgeschichte von Neugraben und Fischbek seit den 1980er Jahren erörtert. Tim Kuisat, Stadtplaner und IBA-Mitarbeiter stellte die künftigen Pläne bis ins Jahr 2025 vor. Dazu gehören auch eine weitreichende Umgestaltung des Bahnhofumfeldes.
 
-+ + +
+
+* * *
 
 
 ## **Gedenkveranstaltung am Do, 19. September 2019** 
 **75 Jahre Außenlager Falkenbergsweg**
 
-Am Donnerstag, dem 19. September um 19:00 Uhr findet eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt. Am 13. September 1944 wurden 500 Frauen und Mädchen im Alter zwischen 15 und 45 Jahren vom Außenlager Dessauer Ufer des KZ Neuengamme an den Falkenbergsweg überführt. Dort bestand schon seit längerem ein Kriegsgefangenen- und ein Zwangsarbeiterlager. Die Frauen wurden parallel zu diesen in hölzernen Baracken untergebracht. Von dort aus hatten sie täglich Arbeitseinsätze in Betrieben in Neugraben und Fischbek sowie anderswo in Süderelbe. Sie wurden auch zu Räumungsarbeiten nach Bombenangriffen, oft auch im Harburger Industriegebiet, eingesetzt. 
+Am Donnerstag, dem 19. September um 19:00 Uhr fand eine Gedenkveranstaltung zum 75. Jahrestag der Ankunft von 500 gefangenen Frauen in dem eigens eingerichteten Außenlager des damaligen KZ Neuengamme am Falkenbergsweg statt. Am 13. September 1944 wurden 500 Frauen und Mädchen im Alter zwischen 15 und 45 Jahren vom Außenlager Dessauer Ufer des KZ Neuengamme an den Falkenbergsweg überführt. Dort bestand schon seit längerem ein Kriegsgefangenen- und ein Zwangsarbeiterlager. Die Frauen wurden parallel zu diesen in hölzernen Baracken untergebracht. Von dort aus hatten sie täglich Arbeitseinsätze in Betrieben in Neugraben und Fischbek sowie anderswo in Süderelbe. Sie wurden auch zu Räumungsarbeiten nach Bombenangriffen, oft auch im Harburger Industriegebiet, eingesetzt. 
 
-Mitglieder der ausrichtenden Organisationen lesen aus nachgelassenen Briefen und Berichten der betroffenen Frauen sowie aus Erinnerungsbüchern und Augenzeugenerzählungen. 
+Mitglieder der ausrichtenden Organisationen lasen aus nachgelassenen Briefen und Berichten der betroffenen Frauen sowie aus Erinnerungsbüchern und Augenzeugenerzählungen. 
 
-Die Veranstaltung findet in Kooperation mit der Initiative Gedenken in Harburg und der Geschichtswerkstatt Harburg statt.
+Die Veranstaltung fand in Kooperation mit der Initiative Gedenken in Harburg und der Geschichtswerkstatt Harburg statt.
 
 Beginn ist um 19:00 Uhr im Begegnungsraum "JoLa" im Erdgeschoss des BGZ Süderelbe, Am Johannisland 2.
 
