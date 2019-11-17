@@ -1,11 +1,12 @@
 # Aktivitäten
 
-Im Süderelbearchiv arbeiten etwa 15 Ehrenamtliche an unterschiedlichen Themen. Sie treffen sich regelmäßig in einer Arbeitsgruppe. Monatlich
-steht das Archiv im Rahmen eines sogenannten Offenen Treffpunkts allen Interessierten für Auskünfte und eigene Beiträge offen. Zu regionalgeschichtlich interessanten Themen veranstalten wir Themenabende in der Bücherhalle oder im BGZ Süderelbe mit Vortragenden aus den eigenen Reihen oder, auf Einladung, mit externen Referentinnen und Referenten aus Wissenschaft und Kultur.
+Im Süderelbearchiv arbeiten etwa 15 Ehrenamtliche an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
+
+Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Interessierten für Auskünfte und eigene Beiträge offen, darüber hinaus sind nach Absprache Einzeltermine möglich. Zu regional- und lokalgeschichtlich interessanten Themen veranstalten wir Themenabende, die in der Bücherhalle oder im BGZ Süderelbe ausgerichtet werden. Vortragende aus den eigenen Reihen oder, auf Einladung, externe Referentinnen und Referenten aus Wissenschaft und Kultur vertiefen die jeweiligen Themen.
 
 ## Arbeitsgruppe
 
-Regelmäßig trifft sich eine Gruppe geschichtlich Interessierter, in der Regel am 2. Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
+Regelmäßig trifft sich eine Gruppe geschichtlich Interessierter, in der Regel am zweiten Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
 Arbeitsgruppen-Termine im zweiten Halbjahr 2019: 12. September, 10. Oktober, 14. November und 12. Dezember. --- Kein Termin im August.
 
