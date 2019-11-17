@@ -15,8 +15,9 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 Die Themen für die erste Jahreshälfte 2020 sind unter anderem:
 
-Der Harburger Blutmontag 1920 und die Arbeit der Frauen im Fachwerkhaus des frühen 19. Jahrhunderts.
-Details folgen an dieser Stelle.
+Der Harburger Blutmontag 1920 (März 2020) und die Arbeit der Frauen im niedersächsischen Fachwerkhaus des frühen 19. Jahrhunderts (Februar 2020).
+
+Details zu Ort und Zeit sowie weitere Informationen folgen demnächst an dieser Stelle.
 
 * * *
 
@@ -35,7 +36,7 @@ Details folgen an dieser Stelle.
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 2. November 2019, von 10:00 bis 12:00 Uhr
+Sa, 7. Dezember 2019, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
