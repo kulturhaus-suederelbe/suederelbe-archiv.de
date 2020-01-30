@@ -11,13 +11,20 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 
 
-## **Themenabende 2020 - neue Termine**
+## **Themenabende 2020**
 
-Die Themen für die erste Jahreshälfte 2020 sind unter anderem:
+## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und der ersten Hälfte des 20. Jahrhunderts"
+Die Referentin, Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Haus veranschaulichen.
 
-Der Harburger Blutmontag 1920 (März 2020) und die Arbeit der Frauen im niedersächsischen Fachwerkhaus des frühen 19. Jahrhunderts (Februar 2020).
+Dazu laden wir herzlich ein!
 
-Details zu Ort und Zeit sowie weitere Informationen folgen demnächst an dieser Stelle.
+Wann: am Donnerstag, 27. Februar 2020 um 19:30 Uhr,
+Wo: in den Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
+
+Am Do, 26. März 2020, ebenfalls um 19:30 Uhr am gleichen Ort folgt dann unser zweiter Themenabend im Jahr.
+Arbeitstitel: Der Harburger Blutmontag 1920 
+
+Wir freuen uns über Ihr Interesse!
 
 * * *
 
@@ -36,7 +43,7 @@ Details zu Ort und Zeit sowie weitere Informationen folgen demnächst an dieser 
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 4. Januar 2020, von 10:00 bis 12:00 Uhr
+Sa, 1. Februar 2020, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
