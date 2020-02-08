@@ -14,7 +14,7 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 ## **Themenabende 2020**
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
-Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Haus veranschaulichen.
+Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
 
 **Dazu laden wir herzlich ein!**
 
@@ -36,7 +36,10 @@ Wir freuen uns über Ihr Interesse!
 
 ## Stadtteilrundgänge
 
-... sind wieder für 2020 geplant, sie werden dann wieder an dieser Stelle angekündigt.
+Wir planen unseren bereits bewährten Rundgang durch den Dorfkern Neugrabens auch in diesem Jahr. Wir werden rechtzeitig dazu einladen.
+
+Der Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben wird ebenfalls wieder stattfinden.
+Wir werden noch bestätigen, ob dies wie in den vergangenen Jahren wieder am 15. April sein wird.
 
 
 * * *
@@ -44,7 +47,7 @@ Wir freuen uns über Ihr Interesse!
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 1. Februar 2020, von 10:00 bis 12:00 Uhr
+Sa, 7. März 2020, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
