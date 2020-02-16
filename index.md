@@ -18,9 +18,12 @@ Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Ho
 
 **Dazu laden wir herzlich ein!**
 
-## Wann: am Donnerstag, 27. Februar 2020 um 19:30 Uhr,
+**Bitte beachten Sie: dieser Termin muss leider vertagt werden, wir informieren Sie so bald wie möglich an dieser Stelle über den neuen Termin! Voraussichtlich findet der Vortrag Ende April oder im Mai 2020 statt. Vielen Dank für Ihr Verständnis!**
+
+## Wann: am [......................]  2020 um 19:30 Uhr,
 
 ## Wo: Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
+
 
 Am Do, 26. März 2020, ebenfalls um 19:30 Uhr am gleichen Ort folgt dann unser zweiter Themenabend im Jahr.
 Arbeitstitel: Der Harburger Blutmontag 1920 
