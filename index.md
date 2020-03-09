@@ -10,29 +10,37 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 * * *
 
 
-
 ## **Themenabende 2020**
+
+Erster Themenabend 2020
+
+## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
+1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
+
+Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Auseinandersetzung in der damaligen Mittelschule in der Woellmerstraße, die 25 Menschen das Leben kostete. Der Konflikt endete mit einem Sieg der verfassungstreuen Kräfte, getragen von der Solidarität und Unterstützung der Arbeiterschaft. Allerdings ergaben zehn anschließende Prozessjahre keine klare Schuldzuweisung.
+
+Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt umgekommenen Anführers der Aufständischen, Hauptmann Rudolf Bertold, eines Fliegerhelden des Ersten Weltkriegs, und stilisierten ihn in jährlichen Trauerfeiern - die bis zum Ende des Zweiten Weltkriegs anhielten, zum Märtyrer des demokratiefeindlichen Umsturzversuchs.
+
+Wir laden herzlich ein, an diesem von Ines Sulzbacher und Gerhard Weiss gestalteten Vortrag teilzunehmen. 
+
+## Wann: am Donnerstag, 26. März 2020 um 19:30 Uhr,
+## Wo: im Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
+
+
+Zweiter Themenabend 2020
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
 
-**Dazu laden wir herzlich ein!**
+Wir laden herzlich ein, an diesem Vortrag teilzunehmen. 
 
-**Bitte beachten Sie: dieser Termin muss leider vertagt werden, wir informieren Sie so bald wie möglich an dieser Stelle über den neuen Termin! Voraussichtlich findet der Vortrag Ende April oder im Mai 2020 statt. Vielen Dank für Ihr Verständnis!**
+## Wann: am Donnerstag, 23. April 2020 um 19:30 Uhr,
+## Wo: in der Bücherhalle Neugraben, Am Neugrabener Markt 7, 21149 Hamburg.
 
-## Wann: am [......................]  2020 um 19:30 Uhr,
-
-## Wo: Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
-
-
-Am Do, 26. März 2020, ebenfalls um 19:30 Uhr am gleichen Ort folgt dann unser zweiter Themenabend im Jahr.
-Arbeitstitel: Der Harburger Blutmontag 1920 
-
-Wir freuen uns über Ihr Interesse!
 
 * * *
 
-**Der Eintritt zu unseren Themenabenden bleibt frei, Spenden sind uns willkommen.**
+**Der Eintritt zu unseren Themenabenden ist frei, Spenden für unsere Arbeit sind uns willkommen.**
 
 
 * * *
