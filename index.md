@@ -9,6 +9,12 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
+Fr, 13.3.2020:
+
+**Wir behalten uns aus aktuellem Anlass vor, mit Rücksicht auf Veranstalter- und TeilnehmerInnen in den nächsten Wochen Vorträge und Rundgänge abzusagen. Bitte informieren Sie sich per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
+
+**Der Themenabend zum Harburger Blutmontag wird nicht wie angekündigt am 26. März stattfinden, sondern später in 2020.**
+
 
 ## **Themenabende 2020**
 
@@ -23,7 +29,7 @@ Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt um
 
 Wir laden herzlich ein, an diesem von Ines Sulzbacher und Gerhard Weiss gestalteten Vortrag teilzunehmen. 
 
-## Wann: am Donnerstag, 26. März 2020 um 19:30 Uhr,
+## Wann: [...], bis auf Weiteres abgesagt, findet später im Jahr 2020 statt
 ## Wo: im Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
 
 
