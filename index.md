@@ -16,6 +16,8 @@ Fr, 13.3.2020:
 **Der Themenabend zum Harburger Blutmontag wird nicht wie angekündigt am 26. März stattfinden, sondern später in 2020.**
 
 
+* * *
+
 ## **Themenabende 2020**
 
 Erster Themenabend 2020
@@ -64,11 +66,11 @@ Wir werden noch bestätigen, ob dies wie in den vergangenen Jahren wieder am 15.
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Sa, 7. März 2020, von 10:00 bis 12:00 Uhr
+Sa, 4. April 2020, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
-Unsere weiteren Termine für 2019 finden Sie unter "Aktivitäten".
+Unsere weiteren Termine für 2020 finden Sie unter "Aktivitäten".
 
 
 
