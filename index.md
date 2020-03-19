@@ -11,9 +11,9 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 Do, 19.3.2020:
 
-**Aufgrund der Covid-19/Corona-Virus-Pandemie und der Allgemeinverfügung zu ihrer Eindämmung in Hamburg vom 15. März sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
+**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
 
-**Der Themenabend zum Harburger Blutmontag findet damit nicht wie angekündigt am 26. März statt, sondern später in 2020. Auch für den Themenabend zu den Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Über beide Termine werden wir Sie informieren, sobald wir wieder gesichert planenn können.**
+**Der Themenabend zum Harburger Blutmontag findet damit nicht wie angekündigt am 26. März statt, sondern später in 2020. Auch für den Themenabend zu den Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Über die neuen Termine werden wir Sie informieren, sobald wir wieder gesichert planen können.**
 
 
 * * *
