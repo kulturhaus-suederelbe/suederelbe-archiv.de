@@ -9,18 +9,18 @@ E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
 * * *
 
-Fr, 13.3.2020:
+Do, 19.3.2020:
 
-**Wir behalten uns aus aktuellem Anlass vor, mit Rücksicht auf Veranstalter- und TeilnehmerInnen in den nächsten Wochen Vorträge und Rundgänge abzusagen. Bitte informieren Sie sich per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
+**Aufgrund der Covid-19/Corona-Virus-Pandemie und der Allgemeinverfügung zu ihrer Eindämmung in Hamburg vom 15. März sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
 
-**Der Themenabend zum Harburger Blutmontag wird nicht wie angekündigt am 26. März stattfinden, sondern später in 2020.**
+**Der Themenabend zum Harburger Blutmontag findet damit nicht wie angekündigt am 26. März statt, sondern später in 2020. Auch für den Themenabend zu den Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Über beide Termine werden wir Sie informieren, sobald wir wieder gesichert planenn können.**
 
 
 * * *
 
 ## **Themenabende 2020**
 
-Erster Themenabend 2020
+Erster Themenabend 2020 (Termin zurzeit offen)
 
 ## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -31,19 +31,20 @@ Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt um
 
 Wir laden herzlich ein, an diesem von Ines Sulzbacher und Gerhard Weiss gestalteten Vortrag teilzunehmen. 
 
-## Wann: [...], bis auf Weiteres abgesagt, findet später im Jahr 2020 statt
+## Wann: [26. März 2020], bis auf Weiteres abgesagt, findet später im Jahr 2020 statt
 ## Wo: im Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
 
 
-Zweiter Themenabend 2020
+Zweiter Themenabend 2020 (Termin zurzeit offen)
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
 
 Wir laden herzlich ein, an diesem Vortrag teilzunehmen. 
 
-## Wann: am Donnerstag, 23. April 2020 um 19:30 Uhr,
-## Wo: in der Bücherhalle Neugraben, Am Neugrabener Markt 7, 21149 Hamburg.
+## Wann: am Donnerstag, [23. April 2020] um 19:30 Uhr,
+## Wo: in der Bücherhalle Neugraben, Am Neugrabener Markt 7, 21149 Hamburg. 
+**Die Bücherhalle ist aktuell (seit Mo, 16.3.2020) bis auf weiteres für das Publikum geschlossen.**
 
 
 * * *
@@ -64,9 +65,9 @@ Wir werden noch bestätigen, ob dies wie in den vergangenen Jahren wieder am 15.
 * * *
 
 
-## Offener Treffpunkt (in der Bücherhalle Neugraben)
+## Offener Treffpunkt (in der Bücherhalle Neugraben) (Termin zurzeit offen)
 
-Sa, 4. April 2020, von 10:00 bis 12:00 Uhr
+Sa, 2. Mai 2020, von 10:00 bis 12:00 Uhr
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
