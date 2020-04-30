@@ -62,12 +62,18 @@ Wir laden herzlich ein, an diesem Vortrag teilzunehmen.
 
 ## Stadtteilrundgänge
 
-Wir planen unseren bereits bewährten 
+Wir hatten vor, unseren bereits bewährten
+
 **Rundgang durch den Dorfkern Neugrabens**
-auch in diesem Jahr, können aber noch nicht sagen, wann dies sein wird. Wir werden rechtzeitig dazu einladen.
+
+auch in diesem Jahr anzubieten, doch auch hier können wir nicht sagen, ob und wann dies sein wird.
+Wir werden Sie an dieser Stelle darüber informieren und rechtzeitig dazu einladen.
+
 
 Heiner Schultz' traditioneller
+
 **Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
+
 konnte nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
 
 Wir hoffen, dass wir den Rundgang im nächsten Jahr, also zum 15. April 2021 wieder anbieten können.
