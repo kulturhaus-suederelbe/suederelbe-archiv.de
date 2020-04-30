@@ -4,14 +4,20 @@ title: Aktuell
 
 # Aktuelles aus dem Süderelbe-Archiv
 
+Do, 30.4.2020:
+
 Herzlich willkommen auf unseren Seiten! Für Fragen und Anregungen erreichen Sie uns unter der
 E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
+Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern weiter an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken.
+
+
 
 * * *
 
-Do, 19.3.2020:
+Do, 19.3.2020 / Do, 30.4.2020:
 
-**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.**
+**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.
+Auch nach dem 30. April bleiben Veranstaltungen in den Bücherhallen untersagt, daher ist unser Offener Treffpunkt ebenfalls bis auf Weiteres ausgesetzt.**
 
 Der Themenabend zum Harburger Blutmontag findet damit nicht wie angekündigt am 26. März statt, sondern später in 2020. Auch für den Themenabend zu den Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Über die neuen Termine werden wir Sie informieren, sobald wir wieder gesichert planen können.
 
@@ -56,10 +62,14 @@ Wir laden herzlich ein, an diesem Vortrag teilzunehmen.
 
 ## Stadtteilrundgänge
 
-Wir planen unseren bereits bewährten Rundgang durch den Dorfkern Neugrabens auch in diesem Jahr. Wir werden rechtzeitig dazu einladen.
+Wir planen unseren bereits bewährten Rundgang durch den Dorfkern Neugrabens auch in diesem Jahr, können aber noch nicht sagen, wann dies sein wird. Wir werden rechtzeitig dazu einladen.
 
-Der Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben wird ebenfalls wieder stattfinden.
-Wir werden noch bestätigen, ob dies wie in den vergangenen Jahren wieder am 15. April sein wird.
+Der Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben konnte nicht stattfinden.
+Statt dessen hat Heiner Schulz einen Text eingesprochen, den sie hier abhören können:
+
+http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/
+
+Wir hoffen, dass wir den Rundgang im nächsten Jahr zum 15. April 2021 wieder anbieten können.
 
 
 * * *
@@ -67,7 +77,7 @@ Wir werden noch bestätigen, ob dies wie in den vergangenen Jahren wieder am 15.
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben) (Termin zurzeit offen)
 
-Sa, 2. Mai 2020, von 10:00 bis 12:00 Uhr
+Bis auf Weiteres ausgesetzt!
 
 Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
 
