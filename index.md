@@ -16,10 +16,15 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Do, 19.3.2020 / Do, 30.4.2020:
 
-**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres (zunächst bis einschließlich 30. April) sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. Bei später angesetzten Veranstaltungen und Rundgängen informieren Sie sich bitte per E-Mail, ob die jeweilige Veranstaltung stattfindet.
+**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. 
+
+**Unsere Veranstaltungen und Rundgänge werden wir an dieser Stelle wieder anzeigen, sobald dies sinnvoll erscheint.
+Fragen Sie in der Zwischenzeit bitte gern per E-Mail bei uns an - wir sind für Sie da und geben gern Auskunft über Bestände und Zugangsmöglichkeiten. 
 Auch nach dem 30. April bleiben Veranstaltungen in den Bücherhallen untersagt, daher ist unser Offener Treffpunkt ebenfalls bis auf Weiteres ausgesetzt.**
 
-Der Themenabend zum Harburger Blutmontag findet damit nicht wie angekündigt am 26. März statt, sondern später in 2020. Auch für den Themenabend zu den Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Über die neuen Termine werden wir Sie informieren, sobald wir wieder gesichert planen können.
+Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird später in 2020 ins Programm aufgenommen. Auch für den Themenabend zu Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. 
+
+Über die neuen Termine werden wir Sie an dieser Stelle sowie in der Lokalpresse informieren, sobald wir wieder gesichert planen können.
 
 
 * * *
