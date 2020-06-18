@@ -47,7 +47,9 @@ Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt.
 
 
 
+******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
+Details zu den weiterhin geplanten Themen (2020/2021):
 
 ## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
