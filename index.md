@@ -4,10 +4,11 @@ title: Aktuell
 
 # Aktuelles aus dem Süderelbe-Archiv
 
-Do, 30.4.2020:
+Do, 18. Juni 2020:
 
 Herzlich willkommen auf unseren Seiten! Für Fragen und Anregungen erreichen Sie uns unter der
 E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
+
 Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern weiter an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken.
 
 
@@ -18,20 +19,26 @@ Do, 19.3.2020 / Do, 30.4.2020:
 
 **Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. 
 
-**Unsere Veranstaltungen und Rundgänge werden wir an dieser Stelle wieder anzeigen, sobald dies sinnvoll erscheint.
+**Unsere Veranstaltungen und Rundgänge werden wir an dieser Stelle wieder anzeigen, sobald dies sinnvoll und planbar ist.
 Fragen Sie in der Zwischenzeit bitte gern per E-Mail bei uns an - wir sind für Sie da und geben gern Auskunft über Bestände und Zugangsmöglichkeiten. 
 Auch nach dem 30. April bleiben Veranstaltungen in den Bücherhallen untersagt, daher ist unser Offener Treffpunkt ebenfalls bis auf Weiteres ausgesetzt.**
 
-Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird später in 2020 ins Programm aufgenommen. Auch für den Themenabend zu Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. 
+Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird später ins Programm aufgenommen. Auch für den Themenabend zu Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Es kann sein, dass dies frühestens im Jahr 2021 der Fall sein wird.
 
 Über die neuen Termine werden wir Sie an dieser Stelle sowie in der Lokalpresse informieren, sobald wir wieder gesichert planen können.
 
 
 * * *
 
-## **Themenabende 2020**
+## **Themenabende und Themennachmittage 2020**
 
-Erster Themenabend 2020 (Termin zurzeit offen)
+Voraussichtlich ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten.
+
+
+
+
+
+
 
 ## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -40,22 +47,13 @@ Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Aus
 
 Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt umgekommenen Anführers der Aufständischen, Hauptmann Rudolf Bertold, eines Fliegerhelden des Ersten Weltkriegs, und stilisierten ihn in jährlichen Trauerfeiern - die bis zum Ende des Zweiten Weltkriegs anhielten, zum Märtyrer des demokratiefeindlichen Umsturzversuchs.
 
-Wir laden herzlich ein, an diesem von Ines Sulzbacher und Gerhard Weiss gestalteten Vortrag teilzunehmen. 
-
-## Wann: [26. März 2020], bis auf Weiteres abgesagt, findet später im Jahr 2020 statt
-## Wo: im Begegnungsraum JoLa im BGZ Süderelbe, Am Johannisland 2, 21147 Hamburg.
+Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
 
 
-Zweiter Themenabend 2020 (Termin zurzeit offen)
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
 
-Wir laden herzlich ein, an diesem Vortrag teilzunehmen. 
-
-## Wann: am Donnerstag, [23. April 2020] um 19:30 Uhr,
-## Wo: in der Bücherhalle Neugraben, Am Neugrabener Markt 7, 21149 Hamburg. 
-**Die Bücherhalle ist aktuell (seit Mo, 16.3.2020) bis auf weiteres für das Publikum geschlossen.**
 
 
 * * *
@@ -71,7 +69,7 @@ Wir hatten vor, unseren bereits bewährten
 
 **Rundgang durch den Dorfkern Neugrabens**
 
-auch in diesem Jahr anzubieten, doch auch hier können wir nicht sagen, ob und wann dies sein wird.
+auch in diesem Jahr anzubieten, doch auch hier können wir zurzeit nicht sagen, wann dies sein wird.
 Wir werden Sie an dieser Stelle darüber informieren und rechtzeitig dazu einladen.
 
 
@@ -81,19 +79,17 @@ Heiner Schultz' traditioneller
 
 konnte nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
 
-Wir hoffen, dass wir den Rundgang im nächsten Jahr, also zum 15. April 2021 wieder anbieten können.
+Wir hoffen, dass wir den Rundgang im nächsten Jahr, also zum 15. April 2021, wieder anbieten können.
 
 
 * * *
 
 
-## Offener Treffpunkt (in der Bücherhalle Neugraben) (Termin zurzeit offen)
+## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Bis auf Weiteres ausgesetzt!
+Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen.
 
-Mitglieder des Süderelbe-Archivs geben Auskunft zu den Beständen und unterstützen Besucher bei Recherche-Anfragen.
-
-Unsere weiteren Termine für 2020 finden Sie unter "Aktivitäten".
+Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
 
 
 
