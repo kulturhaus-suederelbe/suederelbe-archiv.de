@@ -17,7 +17,7 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Do, 19.3.2020 / Do, 30.4.2020:
 
-**Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. 
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. 
 
 **Unsere Veranstaltungen und Rundgänge werden wir an dieser Stelle wieder anzeigen, sobald dies sinnvoll und planbar ist.
 Fragen Sie in der Zwischenzeit bitte gern per E-Mail bei uns an - wir sind für Sie da und geben gern Auskunft über Bestände und Zugangsmöglichkeiten. 
@@ -32,9 +32,18 @@ Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angek�
 
 ## **Themenabende und Themennachmittage 2020**
 
-Voraussichtlich ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten.
+Voraussichtlich ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten. Geplant sind - vorbehaltlich kurzfristiger Änderung aufgrund des Covid-19-Infektionsgeschehens:
 
+Sonntag, 25. Oktober 2020, 15:30 Uhr
+## Erzählcafé zur Gastronomie in Süderelbe - Gastliches Hausbruch, Neugraben-Fischbek und Moorburg.
 
+Sonntag, 15. November 2020, 15:30 Uhr
+## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
+
+Donnerstag, 19. November 2020, ab 16.30 Uhr
+## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
+
+Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt.
 
 
 
