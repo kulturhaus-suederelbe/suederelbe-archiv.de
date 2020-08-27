@@ -30,6 +30,7 @@ Ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 Sonntag, 25. Oktober 2020, 15:30 Uhr
 ## Erzählcafé zur Gastronomie in Süderelbe - Gastliches Hausbruch, Neugraben-Fischbek und Moorburg.
 
+![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
 (...)
 
 
