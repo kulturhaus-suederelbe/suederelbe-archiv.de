@@ -15,27 +15,22 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 * * *
 
-Do, 19.3.2020 / Do, 30.4.2020:
+Do, 20. August 2020:
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sind aktuell bis auf weiteres sämtliche Veranstaltungen des Süderelbe-Archivs abgesagt. 
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 können Veranstaltungen weiterhin nur unter Auflagen und in zahlenmäßiger Beschränkung stattfinden. 
 
-**Unsere Veranstaltungen und Rundgänge werden wir an dieser Stelle wieder anzeigen, sobald dies sinnvoll und planbar ist.
-Fragen Sie in der Zwischenzeit bitte gern per E-Mail bei uns an - wir sind für Sie da und geben gern Auskunft über Bestände und Zugangsmöglichkeiten. 
-Auch nach dem 30. April bleiben Veranstaltungen in den Bücherhallen untersagt, daher ist unser Offener Treffpunkt ebenfalls bis auf Weiteres ausgesetzt.**
-
-Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird später ins Programm aufgenommen. Auch für den Themenabend zu Frauen im niedersächsischen Fachwerkhaus, der am 23. April geplant war, werden wir einen neuen Termin finden müssen. Es kann sein, dass dies frühestens im Jahr 2021 der Fall sein wird.
-
-Über die neuen Termine werden wir Sie an dieser Stelle sowie in der Lokalpresse informieren, sobald wir wieder gesichert planen können.
-
+Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird voraussichtlich im März 2021 ins Programm aufgenommen. Auch der Themenabend zu Frauen im niedersächsischen Fachwerkhaus wird frühestens 2021 stattfinden.
 
 * * *
 
 ## **Themenabende und Themennachmittage 2020**
 
-Voraussichtlich ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten. Geplant sind - vorbehaltlich kurzfristiger Änderung aufgrund des Covid-19-Infektionsgeschehens:
+Ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten. Geplant sind - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens:
 
 Sonntag, 25. Oktober 2020, 15:30 Uhr
 ## Erzählcafé zur Gastronomie in Süderelbe - Gastliches Hausbruch, Neugraben-Fischbek und Moorburg.
+
+
 
 Sonntag, 15. November 2020, 15:30 Uhr
 ## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
@@ -43,7 +38,7 @@ Sonntag, 15. November 2020, 15:30 Uhr
 Donnerstag, 19. November 2020, ab 16.30 Uhr
 ## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
 
-Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt.
+Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um vorherige Anmeldung per E-Mail.
 
 
 
@@ -76,11 +71,12 @@ Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Ho
 
 ## Stadtteilrundgänge
 
-Wir hatten vor, unseren bereits bewährten
+Unseren bereits bewährten 
 
 **Rundgang durch den Dorfkern Neugrabens**
 
-auch in diesem Jahr anzubieten, doch auch hier können wir zurzeit nicht sagen, wann dies sein wird.
+wollten wir eigentlich im Mai diesen Jahres anbieten, doch auch hier mussten wir pausieren. 
+Zurzeit ist offen, wann wir dazu - mit einer Teilnehmerzahl von maximal zehn Personen - einladen können.
 Wir werden Sie an dieser Stelle darüber informieren und rechtzeitig dazu einladen.
 
 
