@@ -2,11 +2,10 @@
 
 
 ## Themenabend "Vom NF 15 zu NF 65" am 26. September 2019
-Der dritte und letzte Themenabend in diesem Jahr fand am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
-Unter dem Titel "Vom NF 15 zu NF 65" wurde die Siedlungsgeschichte von Neugraben und Fischbek seit den 1980er Jahren erörtert.
+Der dritte und letzte Themenabend im Jahr 2019 fand am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
+Unter dem Titel "Vom NF 15 zu NF 65" wurde die Siedlungsgeschichte von Neugraben und Fischbek seit den 1980er Jahren erörtert und ein Ausblick auf die kommende Umgestaltung NF2025 gegeben.
 
-Tim Kuisat, Stadtplaner und IBA-Mitarbeiter, stellte die künftigen Pläne der Stadtplanung bis ins Jahr 2025 vor. Dazu gehören auch eine weitreichende Umgestaltung des Bahnhofsumfeldes.
-
+Tim Kuisat, Stadtplaner und IBA-Mitarbeiter, referierte.
 
 * * *
 
