@@ -28,8 +28,7 @@ Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angek�
 Ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten. Geplant sind - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens:
 
 Sonntag, 25. Oktober 2020, ab 15:30 Uhr bis ca. 18:00 Uhr
-## Historisches am Nachmittag zur Gastronomie in Süderelbe: Gastliches Hausbruch, Neugraben-Fischbek und Moorburg
-**Vom Dorfkrug zur Dönerbude  - Gastlichkeit zwischen Fischbek und Hausbruch - Geschichte(n) von Gasthöfen im Wald und auf der Heide**
+## **Vom Dorfkrug zur Dönerbude  - Gastlichkeit zwischen Fischbek und Hausbruch - Geschichte(n) von Gasthöfen im Wald und auf der Heide**
 
 Einführungsvortrag und anschließender Austausch bei "Harburger Kringeln".
 Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistiftzeichnungen von C. W. Allers zu einem Ausflug nach Hausbruch im Jahr 1889 zu sehen. 
@@ -37,7 +36,7 @@ Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistif
 Wir bitten um Anmeldung unter info@suederelbe-archiv.de bzw. telefonisch unter (0 40) 796 72 22 (Kulturhaus).
 
 ![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
-(...)
+
 
 
 Sonntag, 15. November 2020, 15:30 Uhr
@@ -48,7 +47,7 @@ Donnerstag, 19. November 2020, ab 16.30 Uhr
 
 Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um vorherige Anmeldung per E-Mail.
 
-
+Auch bei den beiden Veranstaltungen im November bitten wir um vorherige Anmeldung (s. oben). Vielen Dank!
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
