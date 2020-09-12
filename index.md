@@ -4,33 +4,32 @@ title: Aktuell
 
 # Aktuelles aus dem Süderelbe-Archiv
 
-Do, 18. Juni 2020:
+Herzlich willkommen auf unseren Seiten! 
 
-Herzlich willkommen auf unseren Seiten! Für Fragen und Anregungen erreichen Sie uns unter der
-E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
+Für Fragen und Anregungen erreichen Sie uns unter der E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
 
-Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern weiter an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken.
+Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken weiter.
 
 
 
 * * *
-
-Do, 20. August 2020:
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 können Veranstaltungen weiterhin nur unter Auflagen und in zahlenmäßiger Beschränkung stattfinden. 
 
 Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird voraussichtlich im März 2021 ins Programm aufgenommen. Auch der Themenabend zu Frauen im niedersächsischen Fachwerkhaus wird frühestens 2021 stattfinden.
 
+Stand: September 2020
+
 * * *
 
 ## **Themenabende und Themennachmittage 2020**
 
-Ab Oktober können wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen abhalten. Geplant sind - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens:
+Ab Oktober werden wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen anbieten. Geplant sind - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - folgende Termine:
 
-Sonntag, 25. Oktober 2020, ab 15:30 Uhr bis ca. 18:00 Uhr
+Sonntag, 25. Oktober 2020, ab 15:30 Uhr (bis ca. 17:00 Uhr)
 ## **Vom Dorfkrug zur Dönerbude  - Gastlichkeit zwischen Fischbek und Hausbruch - Geschichte(n) von Gasthöfen im Wald und auf der Heide**
 
-Einführungsvortrag und anschließender Austausch bei "Harburger Kringeln".
+Einführungsvortrag mit Bildprojektion und anschließender Austausch bei "Harburger Kringeln".
 Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistiftzeichnungen von C. W. Allers zu einem Ausflug nach Hausbruch im Jahr 1889 zu sehen. 
 
 Wir bitten um Anmeldung unter info@suederelbe-archiv.de bzw. telefonisch unter (0 40) 796 72 22 (Kulturhaus).
@@ -39,15 +38,17 @@ Wir bitten um Anmeldung unter info@suederelbe-archiv.de bzw. telefonisch unter (
 
 
 
-Sonntag, 15. November 2020, 15:30 Uhr
+Sonntag, 15. November 2020, 15:30 Uhr (bis ca. 17:00 Uhr)
 ## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
+Frau Hájková lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+Im Anschluss an ihren Vortrag steht sie für Fragen zur Verfügung.
+
 
 Donnerstag, 19. November 2020, ab 16.30 Uhr
 ## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
+Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
 
-Die drei Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um vorherige Anmeldung per E-Mail.
-
-Auch bei den beiden Veranstaltungen im November bitten wir um vorherige Anmeldung (s. oben). Vielen Dank!
+Die drei Veranstaltungen im Oktober und November finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um vorherige Anmeldung per E-Mail oder Telefon (Kulturhaus: 040-7967222).
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
