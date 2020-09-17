@@ -40,7 +40,7 @@ Wir bitten um Anmeldung unter info@suederelbe-archiv.de bzw. telefonisch unter (
 
 Sonntag, 15. November 2020, 15:30 Uhr (bis ca. 17:00 Uhr)
 ## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
-Frau Hájková lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+Anna Hájková lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
 Im Anschluss an ihren Vortrag steht sie für Fragen zur Verfügung.
 
 
@@ -52,7 +52,9 @@ Die drei Veranstaltungen im Oktober und November finden im JoLa, Am Johannisland
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
-Details zu den weiterhin geplanten Themen (2020/2021):
+*Vorschau auf 2021*
+
+März 2021:
 
 ## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -64,6 +66,7 @@ Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt um
 Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
 
 
+Im ersten Halbjahr:
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
