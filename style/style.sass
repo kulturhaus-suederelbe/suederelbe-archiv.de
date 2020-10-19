@@ -85,8 +85,21 @@ nav
     float: left
     width: $nav
   ul
-    padding: 0// 0 0 1em
+    padding: 0
     margin: 0
+    & ul
+      background-color: $bright
+      & li
+        padding: 0.25em 1em 0.25em 2em
+        margin: 0
+        border: 0
+        border-top: 1pt dashed $bright
+        background-color: $bright
+        &:hover, &.active
+          background-image: none
+          background-color: $medium
+      & ul li
+        padding-left: 3em
   li
     margin: 0.25em 0 0.25em 0
     padding: 0.75em 1em 0.75em 1em
@@ -97,15 +110,6 @@ nav
     background-color: $medium
     &:hover, &.active
       background-image: linear-gradient(to right, $medium, $bright)
-  ul > ul > a > li
-    background-color: $bright
-    padding: 0.25em 1em 0.25em 2em
-    margin: 0
-    border: 0
-    border-top: 1pt dashed $bright
-    &:hover, &.active
-      background-image: none
-      background-color: $medium
 
 blockquote
   background-color: whitesmoke
