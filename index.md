@@ -32,7 +32,7 @@ Dr Anna Hájková berichtet über neue Forschungsergebnisse, die ein neues Licht
 
 Anna Hájková, Associate Professor of Modern European Continental History, lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
 
-Dr Hájková auf der Website der Universität: http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova
+[Informationen zu Dr Anna Hájková auf der Website der University of Warwick](http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova)
 
 Diese Veranstaltung wird unterstützt  durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
 
