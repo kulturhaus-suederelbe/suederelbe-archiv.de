@@ -1,6 +1,21 @@
 # Veranstaltungsarchiv
 
 
+
+
+
+## Themennachmittag "Vom Dorfkrug zur Dönerbude  - Gastlichkeit zwischen Fischbek und Hausbruch - Geschichte(n) von Gasthöfen im Wald und auf der Heide" am Sonntag, 25. Oktober 2020, um 15:30 Uhr
+
+Einführungsvortrag mit Bildprojektion und anschließender Austausch bei "Harburger Kringeln".
+Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistiftzeichnungen von C. W. Allers zu einem Ausflug nach Hausbruch im Jahr 1889 zu sehen. 
+
+(... - kurzer Bericht über Ablauf und Teilnahme, noch von SK)
+
+![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
+
+
+
+
 ## Themenabend "Vom NF 15 zu NF 65" am 26. September 2019
 Der dritte und letzte Themenabend im Jahr 2019 fand am Donnerstag, 26. September 2019, um 19:30 Uhr im Stadtteilsaal des BGZ Süderelbe statt.
 Unter dem Titel "Vom NF 15 zu NF 65" wurde die Siedlungsgeschichte von Neugraben und Fischbek seit den 1980er Jahren erörtert und ein Ausblick auf die kommende Umgestaltung NF2025 gegeben.
