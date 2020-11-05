@@ -11,44 +11,42 @@ Für Fragen und Anregungen erreichen Sie uns unter der E-Mail-Adresse [info@sued
 Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken weiter.
 
 
-
 * * *
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 können Veranstaltungen weiterhin nur unter Auflagen und in zahlenmäßiger Beschränkung stattfinden. 
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 können Veranstaltungen weiterhin nur unter Auflagen und in zahlenmäßiger Beschränkung stattfinden. Im November setzen wir aufgrund der neuerlichen Anordnung (ab Mo, 2.11.) zur Schließung von kulturellen Einrichtungen für Veranstaltungen mit Publikum unsere Veranstaltungen aus bzw. verlegen sie ins Digitale.
+Bitte beachten Sie dazu die Anmerkungen bei der jeweiligen Veranstaltung - vielen Dank!
 
-Der Themenabend zum Harburger Blutmontag fand - wie berichtet - nicht wie angekündigt am 26. März statt, sondern wird voraussichtlich im März 2021 ins Programm aufgenommen. Auch der Themenabend zu Frauen im niedersächsischen Fachwerkhaus wird frühestens 2021 stattfinden.
-
-Stand: September 2020
+Stand: 2. November 2020
 
 * * *
 
 ## **Themenabende und Themennachmittage 2020**
 
-Ab Oktober werden wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen anbieten. Geplant sind - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - folgende Termine:
+Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wird nun digital stattfinden.
 
-Sonntag, 25. Oktober 2020, ab 15:30 Uhr (bis ca. 17:00 Uhr)
-## **Vom Dorfkrug zur Dönerbude  - Gastlichkeit zwischen Fischbek und Hausbruch - Geschichte(n) von Gasthöfen im Wald und auf der Heide**
+## **Sonntag, 15. November 2020, ab 15:30 Uhr - Vortrag ONLINE**
 
-Einführungsvortrag mit Bildprojektion und anschließender Austausch bei "Harburger Kringeln".
-Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistiftzeichnungen von C. W. Allers zu einem Ausflug nach Hausbruch im Jahr 1889 zu sehen. 
-
-Wir bitten um Anmeldung unter info@suederelbe-archiv.de bzw. telefonisch unter (0 40) 796 72 22 (Kulturhaus).
-
-![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
-
-
-
-Sonntag, 15. November 2020, 15:30 Uhr (bis ca. 17:00 Uhr)
 ## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
-Anna Hájková lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
-Im Anschluss an ihren Vortrag steht sie für Fragen zur Verfügung.
+
+Dr Anna Hájková berichtet über neue Forschungsergebnisse, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demografie der gefangenen Frauen ein.
+
+Anna Hájková, Associate Professor of Modern European Continental History, lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+
+Dr Hájková auf der Website der Universität: http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova
+
+Diese Veranstaltung wird unterstützt  durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
+
+Bitte melden Sie Ihr Interesse unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) bis zum 13.11.2020, 15:00 Uhr bei uns an. Wir senden Ihnen dann den Link für die Einwahl in die Konferenz zu. - Die Teilnahme an dem Vortrag ist für Sie kostenlos. 
+Vielen Dank für Ihr Interesse!
 
 
-Donnerstag, 19. November 2020, ab 16.30 Uhr
+## **Bitte beachten Sie: die Veranstaltung am 19. November kann in der geplanten Form nicht stattfinden. Wir werden versuchen, ein angepasstes Format anzubieten bzw. werden die Veranstaltung auf einen späteren Termin verschieben.**
+
+Donnerstag, 19. November 2020, ab 16.30 Uhr (unter Vorberhalt!)
 ## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
 Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
 
-Die drei Veranstaltungen im Oktober und November finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um vorherige Anmeldung per E-Mail oder Telefon (Kulturhaus: 040-7967222).
+Die Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um Anmeldung per E-Mail oder Telefon (Kulturhaus: 040-7967222). Gern können Sie sich per E-Mail nach dem aktuellen Stand - findet die Veranstaltung statt? - erkundigen.
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
@@ -66,7 +64,7 @@ Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt um
 Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
 
 
-Im ersten Halbjahr:
+Im ersten Halbjahr 2021:
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
