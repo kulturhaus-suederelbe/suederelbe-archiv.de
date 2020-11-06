@@ -28,21 +28,23 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 
 ## **Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Alltag eines Hamburger KZ – Nachdenken über das Frauenlager in Neugraben"**
 
-Dr Anna Hájková berichtet über neue Forschungsergebnisse, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demografie der gefangenen Frauen ein.
+Dr Anna Hájková berichtet über aktuelle Ergebnisse ihrer Forschung, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demographie der gefangenen Frauen ein.
 
-Anna Hájková, Associate Professor of Modern European Continental History, lehrt an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+Anna Hájková, Associate Professor of Modern European Continental History, lehrt und forscht an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+
+(Der Vortrag wird auf Deutsch gehalten.)
 
 [Informationen zu Dr Anna Hájková auf der Website der University of Warwick](http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova)
 
-Diese Veranstaltung wird unterstützt  durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
+Diese Veranstaltung wird unterstützt durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
 
 Bitte melden Sie Ihr Interesse unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) bis zum 13.11.2020, 15:00 Uhr bei uns an. Wir senden Ihnen dann den Link für die Einwahl in die Konferenz zu. - Die Teilnahme an dem Vortrag ist für Sie kostenlos. 
 Vielen Dank für Ihr Interesse!
 
 
-## **Bitte beachten Sie: die Veranstaltung am 19. November kann in der geplanten Form nicht stattfinden. Wir werden versuchen, ein angepasstes Format anzubieten bzw. werden die Veranstaltung auf einen späteren Termin verschieben.**
+## **Bitte beachten Sie: die Veranstaltung am 19. November kann nicht in der geplanten Form stattfinden. Wir werden versuchen, ein angepasstes Format anzubieten bzw. werden die Veranstaltung voraussichtlich auf einen späteren Termin verschieben.**
 
-Donnerstag, 19. November 2020, ab 16.30 Uhr (unter Vorberhalt!)
+Donnerstag, 19. November 2020, ab 16.30 Uhr (unter Vorbehalt - voraussichtlich verlegt!)
 ## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
 Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
 
