@@ -26,7 +26,7 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 
 ## **Sonntag, 15. November 2020, ab 15:30 Uhr - Vortrag ONLINE**
 
-## Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Sexualität im KZ – Facetten einer erzwungenen Frauenbeziehung im KZ-Außenlager Neugraben“.
+## **Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Alltag eines Hamburger KZ – Nachdenken über das Frauenlager in Neugraben"**
 
 Dr Anna Hájková berichtet über neue Forschungsergebnisse, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demografie der gefangenen Frauen ein.
 
