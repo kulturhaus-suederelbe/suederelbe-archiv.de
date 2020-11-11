@@ -42,9 +42,9 @@ Bitte melden Sie Ihr Interesse unter [info@suederelbe-archiv.de](mailto:info@sue
 Vielen Dank für Ihr Interesse!
 
 
-## **Bitte beachten Sie: die Veranstaltung am 19. November kann nicht in der geplanten Form stattfinden. Wir werden versuchen, ein angepasstes Format anzubieten bzw. werden die Veranstaltung voraussichtlich auf einen späteren Termin verschieben.**
+## **Bitte beachten Sie: die Veranstaltung am 19. November kann nicht in der geplanten Form stattfinden. Wir werden sie  auf einen späteren Termin verschieben müssen, den wir gesondert bekanntgeben.**
 
-Donnerstag, 19. November 2020, ab 16.30 Uhr (unter Vorbehalt - voraussichtlich verlegt!)
+Donnerstag, 19. November 2020, ab 16.30 Uhr (abgesagt - wird auf einen späteren Termin verlegt!)
 ## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
 Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
 
