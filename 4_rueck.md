@@ -9,9 +9,11 @@
 Einführungsvortrag mit Bildprojektion und anschließender Austausch bei "Harburger Kringeln".
 Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistiftzeichnungen von C. W. Allers zu einem Ausflug nach Hausbruch im Jahr 1889 zu sehen. 
 
+![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
+
 (... - kurzer Bericht über Ablauf und Teilnahme, noch von SK)
 
-![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
+
 
 
 
