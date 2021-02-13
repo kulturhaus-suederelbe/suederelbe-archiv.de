@@ -13,34 +13,15 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 * * *
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 können Veranstaltungen weiterhin nur unter Auflagen und in zahlenmäßiger Beschränkung stattfinden. Im November setzen wir aufgrund der neuerlichen Anordnung (ab Mo, 2.11.) zur Schließung von kulturellen Einrichtungen für Veranstaltungen mit Publikum unsere Veranstaltungen aus bzw. verlegen sie ins Digitale.
-Bitte beachten Sie dazu die Anmerkungen bei der jeweiligen Veranstaltung - vielen Dank!
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontaktsperre können Veranstaltungen nicht stattfinden bzw. werden soweit möglich und sinnvoll als digitale Angebote durchgeführt.
 
-Stand: 2. November 2020
+Stand: Februar 2021
 
 * * *
 
 ## **Themenabende und Themennachmittage 2020**
 
-Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der inzwischen bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wird nun digital stattfinden.
-
-## **Sonntag, 15. November 2020, ab 15:30 Uhr - Vortrag ONLINE**
-
-## **Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Alltag eines Hamburger KZ – Nachdenken über das Frauenlager in Neugraben"**
-
-Dr Anna Hájková berichtet über aktuelle Ergebnisse ihrer Forschung, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demographie der gefangenen Frauen ein.
-
-Anna Hájková, Associate Professor of Modern European Continental History, lehrt und forscht an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
-
-(Der Vortrag wird auf Deutsch gehalten.)
-
-[Informationen zu Dr Anna Hájková auf der Website der University of Warwick](http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova)
-
-Diese Veranstaltung wird unterstützt durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
-
-Bitte melden Sie Ihr Interesse unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) bis zum 13.11.2020, 15:00 Uhr bei uns an. Wir senden Ihnen dann den Link für die Einwahl in die Konferenz zu. - Die Teilnahme an dem Vortrag ist für Sie kostenlos. 
-Vielen Dank für Ihr Interesse!
-
+Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Rückblick"
 
 ## **Bitte beachten Sie: die Veranstaltung am 19. November kann nicht in der geplanten Form stattfinden. Wir werden sie  auf einen späteren Termin verschieben müssen, den wir gesondert bekanntgeben.**
 
