@@ -27,9 +27,17 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
+*Vorschau auf 2022*
+
+Im Jahr 2022 jährt sich die Sturmflug vom 16./17. Februar 1962 zum 60. Mal. Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
+
+Soweit planbar, möchten wir im nächsten Jahr mit Veranstaltungen zur Februarflut 1962 erinnern. Wir freuen uns auf Ihre Anregungen und Beiträge.
+
+
+
 *Vorschau auf 2021*
 
-März 2021:
+Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit der behördlichen Vorgaben und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
 
 ## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -40,8 +48,6 @@ Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt um
 
 Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
 
-
-Im ersten Halbjahr 2021:
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
