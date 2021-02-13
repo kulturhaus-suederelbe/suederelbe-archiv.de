@@ -21,15 +21,9 @@ Stand: Februar 2021
 
 ## **Themenabende und Themennachmittage 2020**
 
-Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Rückblick"
+Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Veranstaltungsarchiv".
 
-## **Bitte beachten Sie: die Veranstaltung am 19. November kann nicht in der geplanten Form stattfinden. Wir werden sie  auf einen späteren Termin verschieben müssen, den wir gesondert bekanntgeben.**
 
-Donnerstag, 19. November 2020, ab 16.30 Uhr (abgesagt - wird auf einen späteren Termin verlegt!)
-## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
-Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
-
-Die Veranstaltungen finden im JoLa, Am Johannisland 2, 21147 Hamburg statt. Wir bitten um Anmeldung per E-Mail oder Telefon (Kulturhaus: 040-7967222). Gern können Sie sich per E-Mail nach dem aktuellen Stand - findet die Veranstaltung statt? - erkundigen.
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
