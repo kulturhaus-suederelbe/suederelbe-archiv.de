@@ -19,7 +19,7 @@ Stand: Februar 2021
 
 * * *
 
-## **Themenabende und Themennachmittage 2020**
+## **Themenabende und Themennachmittage 2021 und 2022**
 
 Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Veranstaltungsarchiv".
 
