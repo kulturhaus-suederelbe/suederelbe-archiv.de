@@ -1,6 +1,21 @@
 # Veranstaltungsarchiv
 
 
+## **Sonntag, 15. November 2020, ab 15:30 Uhr - Vortrag ONLINE**
+
+## **Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Alltag eines Hamburger KZ – Nachdenken über das Frauenlager in Neugraben"**
+
+Dr Anna Hájková berichtet über aktuelle Ergebnisse ihrer Forschung, die ein neues Licht auf die Häftlingsgesellschaft werfen: über die sozialen Hierarchien im Lager, die Rolle der Lagerältesten, sexuelle Gewalt und sexuellen Tauschhandel und die Interaktionen zwischen dem Wachpersonal und den jüdischen Frauen. Diese Ergebnisse bettet sie in eine Analyse der Demographie der gefangenen Frauen ein.
+
+Anna Hájková, Associate Professor of Modern European Continental History, lehrt und forscht an der University of Warwick in England. Ihr Forschungsschwerpunkt ist die Europäische Geschichte des 20. Jahrhunderts. Sie publiziert u.a. zur jüdischen Alltagsgeschichte des Holocaust.
+
+(Der Vortrag wird auf Deutsch gehalten.)
+
+[Informationen zu Dr Anna Hájková auf der Website der University of Warwick](http://www2.warwick.ac.uk/fac/arts/history/people/staff_index/hajkova)
+
+Diese Veranstaltung wird unterstützt durch die „Lokalen Partnerschaften für Harburg und Süderelbe“.
+
+Bitte melden Sie Ihr Interesse unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) bis zum 13.11.2020, 15:00 Uhr bei uns an. Wir senden Ihnen dann den Link für die Einwahl in die Konferenz zu.
 
 
 
