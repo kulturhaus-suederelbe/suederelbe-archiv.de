@@ -1,6 +1,14 @@
 # Veranstaltungsarchiv
 
 
+
+Donnerstag, 19. November 2020, ab 16.30 Uhr (abgesagt)
+## Workshop und Vortrag – Projektgruppe des Gymnasium Süderelbe - Das KZ-Außenlager nebenan – Gedenken an 500 jüdische Frauen.
+Im Anschluss an einen einführenden Vortrag soll in Kleingruppen erarbeitet werden, wie die Erinnerung an das Lager und die dort inhaftierten Frauen und Mädchen erhalten werden kann.
+Der Workshop konnte wegen des Teil-Lockdowns ab dem 2.11.2020 nicht stattfinden. Es ist geplant, in 2021 - sobald dies wieder in Präsenz mögich ist - eine Kooperation verschiedener Interessengruppen ins Leben zu rufen, die sich um Erinnung und Gedenken an das ehemalige Außenlager des KZ Neuengamme und die daneben bestehenden Zwangsarbeiter und Militärinhaftiertenlager bemühen wird (Stichwort "Gedenkort Falkenbergsweg 71").
+
+
+
 ## **Sonntag, 15. November 2020, ab 15:30 Uhr - Vortrag ONLINE**
 
 ## **Vortrag von Anna Hájková (Historikerin, University of Warwick, UK) „Alltag eines Hamburger KZ – Nachdenken über das Frauenlager in Neugraben"**
