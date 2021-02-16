@@ -2,7 +2,7 @@
 title: Aktuell
 ---
 
-# Aktuelles aus dem Süderelbe-Archiv
+# Aktuelles aus dem Süderelbe-Archiv - der Geschichtswerkstatt für die Region Süderelbe
 
 Herzlich willkommen auf unseren Seiten! 
 
