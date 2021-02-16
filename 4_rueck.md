@@ -34,9 +34,7 @@ Im 1. Stock des Kulturhauses ist zeitgleich eine kleine Ausstellung mit Bleistif
 
 ![](/img/2020_08_10_dl_Bild_030_1_Ankuendigung.jpg) 
 
-(... - kurzer Bericht über Ablauf und Teilnahme, noch von SK)
-
-
+Ausgehend von einer Grafikmappe aus dem Jahre 1888 mit 43 gedruckten Bleistiftzeichnungen des Hamburger Künstlers C. W. Allers (1857-1915) über einen feierlichen Ausflug eines Hamburger Freizeitvereins zu einem Hausbrucher Gasthof, stellte Stephan Kaiser die Entwicklung der Gastronomie zwischen Fischbek, Hausbruch und Moorburg vom Beginn der Ortsgründungen bis in die 1960er Jahre dar. Die Corona-bedingt auf 35 Personen begrenzte Teilnehmerzahl hatte im Anschluss an den Vortrag Gelegenheit, die im Kulturhaus Süderelbe ausgestellten Grafiken zu besichtigen. Wer nicht an der Veranstaltung teilnehmen konnte, kann sich bei uns gerne die Text- und Bilddateien zu dem Vortrag und der Grafikmappe anfordern.
 
 
 
