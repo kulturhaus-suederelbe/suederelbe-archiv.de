@@ -27,15 +27,17 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
-*Vorschau auf 2022*
+## *Vorschau auf 2022*
 
-Im Jahr 2022 jährt sich die Sturmflug vom 16./17. Februar 1962 zum 60. Mal. Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
+Im Jahr 2022 jährt sich 
+## die Sturmflut vom 16./17. Februar 1962
+zum 60. Mal. Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
 
 Soweit planbar, möchten wir im nächsten Jahr mit Veranstaltungen zur Februarflut 1962 erinnern. Wir freuen uns auf Ihre Anregungen und Beiträge.
 
 
 
-*Vorschau auf 2021*
+## *Vorschau auf 2021*
 
 Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit der behördlichen Vorgaben und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
 
