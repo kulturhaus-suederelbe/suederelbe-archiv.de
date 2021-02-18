@@ -37,11 +37,13 @@ Soweit planbar, möchten wir im nächsten Jahr mit Veranstaltungen zur Februarfl
 
 
 
+
+
 ## *Vorschau auf 2021*
 
 Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit der behördlichen Vorgaben und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
 
-## Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg
+## **Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg**
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
 
 Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Auseinandersetzung in der damaligen Mittelschule in der Woellmerstraße, die 25 Menschen das Leben kostete. Der Konflikt endete mit einem Sieg der verfassungstreuen Kräfte, getragen von der Solidarität und Unterstützung der Arbeiterschaft. Allerdings ergaben zehn anschließende Prozessjahre keine klare Schuldzuweisung.
@@ -49,6 +51,7 @@ Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Aus
 Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt umgekommenen Anführers der Aufständischen, Hauptmann Rudolf Bertold, eines Fliegerhelden des Ersten Weltkriegs, und stilisierten ihn in jährlichen Trauerfeiern - die bis zum Ende des Zweiten Weltkriegs anhielten, zum Märtyrer des demokratiefeindlichen Umsturzversuchs.
 
 Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
+
 
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
