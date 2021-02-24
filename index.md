@@ -29,11 +29,13 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 
 ## *Vorschau auf 2022*
 
-Im Jahr 2022 jährt sich 
-## die Sturmflut vom 16./17. Februar 1962
-zum 60. Mal. Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
+ 
+## Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962
+An diese Naturkatastrophe, die die Menschen in unserer Region 17 Jahre nach dem Ende des Zweiten Weltkriegs unvermittelt traf, möchten wir erinnern.
 
-Soweit planbar, möchten wir im nächsten Jahr mit Veranstaltungen zur Februarflut 1962 erinnern. Wir freuen uns auf Ihre Anregungen und Beiträge.
+Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell dauerhaft zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
+
+Wir freuen uns auf Ihre Anregungen und Beiträge.
 
 
 
