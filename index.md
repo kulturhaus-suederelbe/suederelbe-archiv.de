@@ -15,7 +15,7 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontaktsperre können Veranstaltungen nicht stattfinden bzw. werden soweit möglich und sinnvoll als digitale Angebote durchgeführt.
 
-Stand: Februar 2021
+Stand: 25. März 2021
 
 * * *
 
@@ -35,7 +35,7 @@ An diese Naturkatastrophe, die die Menschen in unserer Region 17 Jahre nach dem 
 
 Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell dauerhaft zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
 
-Wir freuen uns auf Ihre Anregungen und Beiträge.
+Wir freuen uns auf Ihre Anregungen und Beiträge. Nehmen Sie gern per E-Mail Kontakt mit uns auf.
 
 
 
@@ -43,7 +43,7 @@ Wir freuen uns auf Ihre Anregungen und Beiträge.
 
 ## *Vorschau auf 2021*
 
-Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit der behördlichen Vorgaben und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
+Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit von den behördlichen Vorgaben und Auflagen und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
 
 ## **Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg**
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -52,12 +52,12 @@ Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Aus
 
 Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt umgekommenen Anführers der Aufständischen, Hauptmann Rudolf Bertold, eines Fliegerhelden des Ersten Weltkriegs, und stilisierten ihn in jährlichen Trauerfeiern - die bis zum Ende des Zweiten Weltkriegs anhielten, zum Märtyrer des demokratiefeindlichen Umsturzversuchs.
 
-Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
+Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet werden. 
 
 
 
 ## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
-Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen.
+Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen. 
 
 
 
@@ -70,22 +70,22 @@ Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Ho
 
 ## Stadtteilrundgänge
 
-Unseren bereits bewährten 
+Zu unserem bereits bewährten 
 
 **Rundgang durch den Dorfkern Neugrabens**
 
-wollten wir eigentlich im Mai diesen Jahres anbieten, doch auch hier mussten wir pausieren. 
-Zurzeit ist offen, wann wir dazu - mit einer Teilnehmerzahl von maximal zehn Personen - einladen können.
-Wir werden Sie an dieser Stelle darüber informieren und rechtzeitig dazu einladen.
+werden wir wieder einladen, wenn eine sinnvolle und sichere Durchführung möglich ist.
+Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Personen anbieten können.
+An dieser Stelle können Sie sich darüber informieren.
 
 
 Heiner Schultz' traditioneller
 
 **Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
 
-konnte nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
+konnte im letzten Jahr nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
 
-Wir hoffen, dass wir den Rundgang zum 15. April 2021 wieder anbieten können.
+Auch in 2021 kann der Rundgang nun leider nicht stattfinden. Der Link ist jedoch noch aktiv, hören Sie gern noch einmal hinein.
 
 
 * * *
