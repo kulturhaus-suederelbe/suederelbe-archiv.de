@@ -30,7 +30,7 @@ Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkr
 ## *Vorschau auf 2022*
 
  
-## Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962
+## **Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962**
 An diese Naturkatastrophe, die die Menschen in unserer Region 17 Jahre nach dem Ende des Zweiten Weltkriegs unvermittelt traf, möchten wir erinnern.
 
 Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell dauerhaft zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
