@@ -1,25 +1,26 @@
 # Aktivitäten
 
-Im Süderelbearchiv arbeiten etwa 15 Ehrenamtliche an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
+Im Süderelbe-Archiv arbeiten etwa 15 Ehrenamtliche und zwei Honorarkräfte an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
 
-Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Interessierten für Auskünfte und eigene Beiträge offen, darüber hinaus sind nach Absprache Einzeltermine möglich. Zu regional- und lokalgeschichtlich interessanten Themen veranstalten wir Themenabende, die in der Bücherhalle oder im BGZ Süderelbe ausgerichtet werden. Vortragende aus den eigenen Reihen oder, auf Einladung, externe Referentinnen und Referenten aus Wissenschaft und Kultur vertiefen die jeweiligen Themen.
+Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Interessierten für Auskünfte und eigene Beiträge offen, darüber hinaus sind nach Absprache auch Einzeltermine zu anderen Zeiten möglich. Zu regional- und lokalgeschichtlich interessanten Themen veranstalten wir Themenabende, die in der Bücherhalle oder im BGZ Süderelbe ausgerichtet werden. Vortragende aus den eigenen Reihen oder, auf Einladung, externe Referentinnen und Referenten aus Wissenschaft und Kultur vertiefen die jeweiligen Themen.
 
 ## Arbeitsgruppe
 
-Regelmäßig trifft sich eine Gruppe geschichtlich Interessierter, in der Regel am zweiten Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
+Regelmäßig trifft sich die Gruppe geschichtlich Interessierter, in der Regel am zweiten Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben bzw. im Kulturhaus Süderelbe Am Johannisland zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
-Arbeitsgruppen-Termine im ersten Halbjahr 2020: 9. Januar, 13. Februar, 12. März.
+Wegen der Covid-19-Pandemie finden die Arbeitsgruppen-Termine zurzeit als Videokonferenzen statt (Stand März 2021).
 
 
 ## Offener Treffpunkt
 
 Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle mindestens ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
 
-Offene Treffpunkte im ersten Halbjahr 2020: 4. Januar, 1. Februar, 7. März.
+Offene Treffpunkte im ersten Halbjahr 2021: (...) Der Offene Treffpunkt ist derzeit ausgesetzt, für Anfragen senden Sie uns bitte ein E-Mail.
 
 ## Themenabende
 
 Unsere Themenabende sind ein besonderes Angebot für historisch interessierte Bürger und werden sehr gut besucht. Die Materialien der
 Themenabende - soweit vorhanden - sind als Foto- und Audiodateien im Archiv verfügbar. Zu den Themenabenden laden wir mit Plakaten, auf unserer Website, in der Lokalpresse sowie über einen E-Mail-Verteiler ein.
 
-Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden, senden Sie uns bitte eine E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt.
+Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden, senden Sie uns bitte eine E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten.
+
