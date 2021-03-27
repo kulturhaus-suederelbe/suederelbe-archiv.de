@@ -3,7 +3,7 @@
 Moorburg (ndd. *Moorborch/Murborch*) war bis zum Jahr 1937 der einzige Hamburger Territorialbesitz
 südlich der Elbe. Im Jahr 1375 hatte Hamburg Land im sog. Glindesmoor
 erworben, um den südlichen Arm der Elbe kontrollieren zu können, und
-richtete dort eine Zollstation ein.
+richtete dort eine Zollstation ein. 1390 wurde eine Burg, die Moorburg, errichtet.
 
 Interessante Dokumente zur Moorburger Geschichte finden sich auf der
 Internet-Präsenz "Moorburger Geschichte und Geschichten"
