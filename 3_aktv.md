@@ -1,6 +1,6 @@
 # Aktivitäten
 
-Im Süderelbe-Archiv arbeiten etwa 15 Ehrenamtliche und zwei Honorarkräfte an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
+Im Süderelbe-Archiv arbeiten etwa 15 Ehrenamtliche sowie zwei Honorarkräfte an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
 
 Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Interessierten für Auskünfte und eigene Beiträge offen, darüber hinaus sind nach Absprache auch Einzeltermine zu anderen Zeiten möglich. Zu regional- und lokalgeschichtlich interessanten Themen veranstalten wir Themenabende, die in der Bücherhalle oder im BGZ Süderelbe ausgerichtet werden. Vortragende aus den eigenen Reihen oder, auf Einladung, externe Referentinnen und Referenten aus Wissenschaft und Kultur vertiefen die jeweiligen Themen.
 
