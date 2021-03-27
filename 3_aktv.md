@@ -8,7 +8,7 @@ Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Inter
 
 Regelmäßig trifft sich die Gruppe geschichtlich Interessierter, in der Regel am zweiten Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben bzw. im Kulturhaus Süderelbe Am Johannisland zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
-Wegen der Covid-19-Pandemie finden die Arbeitsgruppen-Termine zurzeit als Videokonferenzen statt (Stand März 2021).
+**Bitte beachten Sie: wegen der Covid-19-Pandemie finden die Arbeitsgruppen-Termine zurzeit als Videokonferenzen statt (Stand: März 2021).**
 
 
 ## Offener Treffpunkt
@@ -22,5 +22,5 @@ Offene Treffpunkte im ersten Halbjahr 2021: (...) Der Offene Treffpunkt ist derz
 Unsere Themenabende sind ein besonderes Angebot für historisch interessierte Bürger und werden sehr gut besucht. Die Materialien der
 Themenabende - soweit vorhanden - sind als Foto- und Audiodateien im Archiv verfügbar. Zu den Themenabenden laden wir mit Plakaten, auf unserer Website, in der Lokalpresse sowie über einen E-Mail-Verteiler ein.
 
-Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden, senden Sie uns bitte eine E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten.
+Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden, senden Sie uns bitte ein E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten. Bitte teilen Sie uns dies per E-Mail mit.
 
