@@ -15,7 +15,7 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontaktsperre können Veranstaltungen nicht stattfinden bzw. werden soweit möglich und sinnvoll als digitale Angebote durchgeführt.
 
-Stand: 25. März 2021
+Stand: 28. April 2021
 
 * * *
 
