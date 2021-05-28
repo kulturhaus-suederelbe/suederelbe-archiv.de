@@ -15,7 +15,46 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontaktsperre können Veranstaltungen nicht stattfinden bzw. werden soweit möglich und sinnvoll als digitale Angebote durchgeführt.
 
-Stand: 28. April 2021
+Stand: 28. Mai 2021
+
+
+* * *
+
+
+## Stadtteilrundgänge und Gedenken an den Stolpersteinen
+
+## *Gedenken am Stolperstein in Altenwerder*
+
+Am **So, dem 25.4.2021 um 10:15 Uhr** fand (im Anschluss an den wieder möglichen Gottesdienst in der St.-Gertrud-Kirche) eine Gedenkveranstaltung zum **80. Todestag (am 17.4.) von Rudolf Krukenbaum** statt (mehr Infos auf: https://www.stolpersteine-hamburg.de/?&MAIN_ID=7&BIO_ID=2768). Es fanden Ansprachen von Katrin Ehlberg vom Süderelbe-Archiv und Pastor Ulrich Krüger von der Thomas-Gemeinde und ein gemeinsames Gedenken mit Mitgliedern der Initiative Gedenken in Harburg, der Geschichtswerkstätten Harburg und Süderelbe-Archiv sowie spontan einigen Teilnehmer/-innen des Gottesdienstes statt.
+
+
+
+Zu unserem bereits bewährten 
+
+**Rundgang durch den Dorfkern Neugrabens**
+
+werden wir wieder einladen, wenn eine sinnvolle und sichere Durchführung möglich ist.
+Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Personen anbieten können.
+An dieser Stelle können Sie sich darüber informieren.
+
+
+Heiner Schultz' traditioneller
+
+**Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
+
+konnte im letzten Jahr nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
+
+Auch in 2021 kann der Rundgang nun leider nicht stattfinden. Der Link ist jedoch noch aktiv, hören Sie gern noch einmal hinein.
+
+
+* * *
+
+
+## Offener Treffpunkt (in der Bücherhalle Neugraben)
+
+Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen.
+
+Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
 
 * * *
 
@@ -24,8 +63,8 @@ Stand: 28. April 2021
 Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Veranstaltungsarchiv".
 
 
-
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
+
 
 ## *Vorschau auf 2022*
 
@@ -64,40 +103,6 @@ Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Ho
 * * *
 
 **Der Eintritt zu unseren Themenabenden ist frei, Spenden für unsere Arbeit sind uns willkommen.**
-
-
-* * *
-
-## Stadtteilrundgänge
-
-Zu unserem bereits bewährten 
-
-**Rundgang durch den Dorfkern Neugrabens**
-
-werden wir wieder einladen, wenn eine sinnvolle und sichere Durchführung möglich ist.
-Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Personen anbieten können.
-An dieser Stelle können Sie sich darüber informieren.
-
-
-Heiner Schultz' traditioneller
-
-**Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
-
-konnte im letzten Jahr nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
-
-Auch in 2021 kann der Rundgang nun leider nicht stattfinden. Der Link ist jedoch noch aktiv, hören Sie gern noch einmal hinein.
-
-
-* * *
-
-
-## Offener Treffpunkt (in der Bücherhalle Neugraben)
-
-Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen.
-
-Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
-
-
 
 * * *
 
