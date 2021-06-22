@@ -13,9 +13,9 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 * * *
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontaktsperre können Veranstaltungen nicht stattfinden bzw. werden soweit möglich und sinnvoll als digitale Angebote durchgeführt.
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontakteinschränkungen bieten wir derzeit keine bzw. nur digitale Veranstaltungen an.
 
-Stand: 28. Mai 2021
+Stand: 22. Juni 2021
 
 
 * * *
@@ -23,9 +23,6 @@ Stand: 28. Mai 2021
 
 ## Stadtteilrundgänge und Gedenken an den Stolpersteinen
 
-## *Gedenken am Stolperstein in Altenwerder*
-
-Am **So, dem 25.4.2021 um 10:15 Uhr** fand (im Anschluss an den wieder möglichen Gottesdienst in der St.-Gertrud-Kirche) eine Gedenkveranstaltung zum **80. Todestag (am 17.4.) von Rudolf Krukenbaum** statt (mehr Hintergrund dazu finden Sie [hier](https://www.stolpersteine-hamburg.de/?&MAIN_ID=7&BIO_ID=2768)). Es fanden Ansprachen von Katrin Ehlberg vom Süderelbe-Archiv und Pastor Ulrich Krüger von der Thomas-Gemeinde und ein gemeinsames Gedenken mit Mitgliedern der Initiative Gedenken in Harburg, der Geschichtswerkstätten Harburg und Süderelbe-Archiv sowie spontan einigen Teilnehmer/-innen des Gottesdienstes statt.
 
 
 
