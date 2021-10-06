@@ -15,7 +15,7 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontakteinschränkungen bieten wir derzeit keine bzw. nur digitale Veranstaltungen an.
 
-Stand: 22. Juni 2021
+Stand: 30. September 2021
 
 
 * * *
@@ -53,11 +53,14 @@ Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anf
 
 Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
 
+**Im Rahmen der Kulturtage Süderelbe 2021 bieten wir am Samstag, 6. November von 10:00 bis 12:00 Uhr vor Ort in der Bücherhalle Neugraben erstmalig wieder den Offenen Treffpunkt an - unter den dann in Hamburg geltenden Maßnahmen zur Eindämmung des Coronavirus.**
+
+
 * * *
 
 ## **Themenabende und Themennachmittage 2021 und 2022**
 
-Ab Oktober konnten wir wieder Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der bekannten Hygienemaßnahmen anbieten. Geplant waren für November - vorbehaltlich kurzfristiger Änderungen aufgrund des Covid-19-Infektionsgeschehens - noch die unten stehenden Termine. Der Vortrag von Anna Hájková wurde digital per Zoom-Videokonferenz abgehalten. S. dazu unsere Rubrik "Veranstaltungsarchiv".
+Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der geltenden Hygienemaßnahmen anbieten. Geplant waren für November 2020 weitere Termine. Der Vortrag von Anna Hájková wurde dann nur digital per Zoom-Videokonferenz abgehalten. Zu dieser Veranstaltung lesen Sie bitte unsere Rubrik "Veranstaltungsarchiv".
 
 
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
@@ -77,7 +80,7 @@ Wir freuen uns auf Ihre Anregungen und Beiträge. Nehmen Sie gern per E-Mail Kon
 
 
 
-## *Vorschau auf 2021*
+## *Vorschau auf 2021 und 2022*
 
 Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit von den behördlichen Vorgaben und Auflagen und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
 
