@@ -13,9 +13,9 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 * * *
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Kontakteinschränkungen bieten wir derzeit keine bzw. nur digitale Veranstaltungen an.
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen bieten wir derzeit Veranstaltungen im 3G bzw. 2G-Modus an.
 
-Stand: 30. September 2021
+Stand: 11. November 2021
 
 
 * * *
