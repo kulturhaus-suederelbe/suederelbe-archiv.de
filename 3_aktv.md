@@ -6,16 +6,16 @@ Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts allen Inter
 
 ## Arbeitsgruppe
 
-Regelmäßig trifft sich die Gruppe geschichtlich Interessierter, in der Regel am zweiten Donnerstag im Monat um 18:30 Uhr, in der Bücherhalle Neugraben bzw. im Kulturhaus Süderelbe Am Johannisland zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
+Eine Gruppe geschichtlich Interessierter trifft sich einmal im Monat am jeweils zweiten Donnerstag um 18:30 Uhr, zurzeit im Kulturhaus Süderelbe, Am Johannisland 2, JoLa-Raum im Erdgeschoss, zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
 
-**Bitte beachten Sie: wegen der Covid-19-Pandemie finden die Arbeitsgruppen-Termine zurzeit als Videokonferenzen statt (Stand: März 2021).**
+**Bitte beachten Sie: wegen der Covid-19-Pandemie finden die Arbeitsgruppen-Termine zurzeit als 2G-Veranstaltungen statt, Ihre Kontaktdaten werden aufgenommen und nach vier Wochen gelöscht. Stand: November 2021).**
 
 
 ## Offener Treffpunkt
 
 Der Offene Treffpunkt lädt Besucher ein, sich an jedem ersten Samstag im Monat über das Archiv zu informieren. Von 10 bis 12 Uhr ist dann in der Bücherhalle mindestens ein Mitglied der Geschichtsgruppe anwesend, um Auskünfte zu geben, Kontakte zu vermitteln und bei Recherchen zu unterstützen.
 
-Offene Treffpunkte im ersten Halbjahr 2021: (...) Der Offene Treffpunkt ist derzeit ausgesetzt, für Anfragen senden Sie uns bitte ein E-Mail.
+Der Offene Treffpunkt ist derzeit ausgesetzt, für Anfragen senden Sie uns bitte ein E-Mail.
 
 ## Themenabende
 
