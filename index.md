@@ -15,7 +15,17 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen bieten wir vereinzelt Veranstaltungen an.
 
-Stand: 11. November 2021
+Stand: 31. Dezember 2021
+
+
+* * *
+
+## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch
+
+Wir laden ein zu einer Ausstellung mit Bildern und Photos aus Süderelbe und zu einem Erinnerungsnachmittag mit Vortrag ins Kulturhaus Süderelbe, JoLa-Raum.
+Die Ausstellung wird vom 1. bis 19. Februar in der Bücherhalle zu sehen sein. Am Sonntag, 20. Februar 2022 laden wir dann zu einem Vortrag mit anschließendem Austausch ein. Hier besteht die Möglichkeit, sich mit Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse auszutauschen.
+
+Bitte melden Sie sich telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de zu diesem Nachmittag an. Es gilt die Hamburger 2G-Regel. Bitte halten Sie dazu Ihren ID-Nachweis und Ihr Impf- bzw. Genesenen-Zertifikat bereit.
 
 
 * * *
