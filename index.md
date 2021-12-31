@@ -20,7 +20,7 @@ Stand: 31. Dezember 2021
 
 * * *
 
-## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch
+## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch (Sonntag, 20. Februar 2022, 15:30 Uhr im JoLa, Am Johannisland 2)
 
 Wir laden ein zu einer Ausstellung mit Bildern und Photos aus Süderelbe und zu einem Erinnerungsnachmittag mit Vortrag ins Kulturhaus Süderelbe, JoLa-Raum.
 Die Ausstellung wird vom 1. bis 19. Februar in der Bücherhalle zu sehen sein. Am Sonntag, 20. Februar 2022 laden wir dann zu einem Vortrag mit anschließendem Austausch ein. Hier besteht die Möglichkeit, sich mit Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse auszutauschen.
