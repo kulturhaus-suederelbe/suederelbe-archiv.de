@@ -9,3 +9,5 @@ hinzugefügt am 27.02.2016)
 - [Forschungsstelle Zeitgeschichte Hamburg](https://www.zeitgeschichte-hamburg.de) (Link hinzugefügt am 23.03.2016)
 - [Archäologisches Museum Hamburg \| Stadtmuseum Harburg \| Helms-Museum](http://www.amh.de) (Link hinzugefügt am 10.08.2016)
 - [Stiftung Hamburger Gedenkstätten und Lernorte - Gedenkstätte Neuengamme](https://www.gedenkstaetten-hamburg.de/de/) (Link hinzugefügt am 31.12.2021)
+- [Universität Hamburg - Fachbereich Geschichte - Arbeitsfeld Public History](https://www.geschichte.uni-hamburg.de/arbeitsbereiche/public-history.html) (Link hinzugefügt am 31.12.2021)
+- 
