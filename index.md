@@ -27,7 +27,8 @@ Wir laden herzlich ein zu einer Ausstellung mit Bildern und Photos aus Süderelb
 
 Die Ausstellung wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Neugrabener Markt 7, zu sehen sein. Ab dem 20. Februar wird die Ausstellung dann etwa drei Wochen lang im Kulturhaus Süderelbe zu sehen sein, zunächst im JoLa im Erdgeschoss, danach im 1. Stock im Foyer.
 
-Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir dann zu einem Vortrag mit anschließendem Austausch ein. Hier besteht die Möglichkeit, sich mit Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse auszutauschen.
+Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir dann zu einem Impulsvortrag mit anschließender Möglichkeit zum Austausch ein. Hier können Sie sich auch mit geladenen Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse austauschen.
+Für den Impulsvortrag konnten wir Holger Maciolek, den Sprecher des "Aktionsbündnis Alte Süderelbe" gewinnen.
 
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
 Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit, wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich.
