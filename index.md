@@ -30,7 +30,7 @@ Die Ausstellung wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Ne
 Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir dann zu einem Vortrag mit anschließendem Austausch ein. Hier besteht die Möglichkeit, sich mit Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse auszutauschen.
 
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
-Für Ihren Besuch gilt die sog. "2G-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides bereit am Eingang bereit.
+Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit, wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich.
 
 
 * * *
