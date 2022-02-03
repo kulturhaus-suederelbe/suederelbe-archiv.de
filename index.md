@@ -23,15 +23,15 @@ Stand: 31. Dezember 2021
 
 ## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch (Sonntag, 20. Februar 2022, 15:30 Uhr im JoLa, Am Johannisland 2)
 
-Wir laden herzlich ein zu einer Ausstellung mit Bildern und Photos aus Süderelbe und zu einem Erinnerungsnachmittag mit Vortrag ins Kulturhaus Süderelbe, in den JoLa-Raum, Am Johannisland 2.
+Wir laden herzlich ein zu einer Präsentation mit Bildern und Photos aus Süderelbe und zu einem Erinnerungsnachmittag mit Vortrag ins Kulturhaus Süderelbe, in den JoLa-Raum, Am Johannisland 2.
 
-Die Ausstellung wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Neugrabener Markt 7, zu sehen sein. Ab dem 20. Februar wird die Ausstellung dann etwa drei Wochen lang im Kulturhaus Süderelbe zu sehen sein, zunächst im JoLa im Erdgeschoss, danach im 1. Stock im Foyer.
+Die Präsentation wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Neugrabener Markt 7, zu sehen sein. Ab dem 20. Februar wird die Ausstellung dann etwa drei Wochen lang im Kulturhaus Süderelbe zugänglich sein, zunächst im JoLa im Erdgeschoss, danach im 1. Stock im Foyer.
 
 Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir dann zu einem Impulsvortrag mit anschließender Möglichkeit zum Austausch ein. Hier können Sie sich auch mit geladenen Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse austauschen.
 Für den Impulsvortrag konnten wir Holger Maciolek, den Sprecher des "Aktionsbündnis Alte Süderelbe" gewinnen.
 
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
-Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit, wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich.
+Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit. Wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich mit einem Formular, das nach 14 Tagen vernichtet wird.
 
 
 * * *
