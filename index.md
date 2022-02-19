@@ -33,6 +33,9 @@ Für den Impulsvortrag konnten wir Holger Maciolek, den Sprecher des "Aktionsbü
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
 Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit. Wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich mit einem Formular, das nach 14 Tagen vernichtet wird.
 
+## **Die Veranstaltung ist ausgebucht! (16.2.2022)**
+
+
 
 * * *
 
