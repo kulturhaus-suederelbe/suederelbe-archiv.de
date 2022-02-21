@@ -15,7 +15,7 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen bieten wir vereinzelt Veranstaltungen an.
 
-Stand: 31. Dezember 2021
+Stand: 18. Februar 2022
 
 
 * * *
@@ -25,10 +25,10 @@ Stand: 31. Dezember 2021
 
 Wir laden herzlich ein zu einer Präsentation mit Bildern und Photos aus Süderelbe und zu einem Erinnerungsnachmittag mit Vortrag ins Kulturhaus Süderelbe, in den JoLa-Raum, Am Johannisland 2.
 
-Die Präsentation wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Neugrabener Markt 7, zu sehen sein. Ab dem 20. Februar wird die Ausstellung dann etwa drei Wochen lang im Kulturhaus Süderelbe zugänglich sein, zunächst im JoLa im Erdgeschoss, danach im 1. Stock im Foyer.
+Die Präsentation wird vom 1. bis 19. Februar in der Bücherhalle Neugraben, Am Neugrabener Markt 7, zu sehen sein. Ab dem 20. Februar wird die Ausstellung dann etwa drei Wochen lang im Kulturhaus Süderelbe ausgestellt, am Sonntag, 20. Februar im Foyer des JoLa, ab Montag, 21. Februar dann im Foyer des Kulturhauses Süderelbe, 1. Stock im BGZ.
 
-Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir dann zu einem Impulsvortrag mit anschließender Möglichkeit zum Austausch ein. Hier können Sie sich auch mit geladenen Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse austauschen.
-Für den Impulsvortrag konnten wir Holger Maciolek, den Sprecher des "Aktionsbündnis Alte Süderelbe" gewinnen.
+Am Sonntag, 20. Februar 2022 um 15:30 Uhr laden wir zu einem Impulsvortrag mit anschließender Möglichkeit zum Austausch ein. Hier können Sie sich auch mit geladenen Zeitzeuginnen und Zeitzeugen über die damaligen Geschehnisse austauschen.
+Für den Impulsvortrag konnten wir Holger Maciolek vom "Aktionsbündnis Alte Süderelbe" gewinnen, der uns den Hintergrund und den Ablauf der Ereignisse im Februar 1962 schildern wird. Danach wird er auf die aktuelle Hochwasserschutzsituation im Hamburger Süden eingehen und die Gefahren aufzeigen, die sich durch eine falsche Einschätzung der örtlichen Gegebenheiten im Zusammenspiel mit dem Oberflächenwasser ergeben können.
 
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
 Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit. Wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich mit einem Formular, das nach 14 Tagen vernichtet wird.
@@ -54,13 +54,15 @@ Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Perso
 An dieser Stelle können Sie sich darüber informieren.
 
 
-Heiner Schultz' traditioneller
+Ob Heiner Schultz seinen traditionellen
 
 **Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
 
-konnte im letzten Jahr nicht stattfinden. Statt dessen hat er einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
+am 15. April 2022 (in diesem Jahr der Karfreitag) durchführen wird, steht zur Zeit (Stand 20.2.2022) noch nicht fest, ist zeitlich gerade in Abstimmung.
 
-Auch in 2021 kann der Rundgang nun leider nicht stattfinden. Der Link ist jedoch noch aktiv, hören Sie gern noch einmal hinein.
+Der Gedenkgang konnte 2020 und 2021 nicht stattfinden. Statt dessen hatte Heiner Schultz 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
+
+Der Link ist noch aktiv, hören Sie gern einmal hinein!
 
 
 * * *
