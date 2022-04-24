@@ -1,0 +1,22 @@
+<!DOCTYPE html>
+<html lang="de-DE">
+  <head>
+    <meta charset="utf-8">
+    <link rel="stylesheet" href="/style/style.css">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
+    <meta http-equiv="X-UA-Compatible" content="IE=edge">
+
+    <title>{{ page.title }} – Weiterleitung</title>
+    <link rel="canonical" href="{{ page.redirect.to }}">
+    <script>location="{{ page.redirect.to }}"</script>
+    <meta http-equiv="refresh" content="0; url={{ page.redirect.to }}">
+    <meta name="robots" content="noindex">
+  </head>
+
+  <body>
+    <div class="page">
+    <h1>{{ page.title }} – Weiterleitung</h1>
+    <a href="{{ page.redirect.to }}">Klicken Sie bitte hier, wenn Sie nicht automatisch weitergeleitet werden.</a>
+    </div>
+  </body>
+</html>
