@@ -13,13 +13,22 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 
 * * *
 
-Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen bieten wir vereinzelt Veranstaltungen an.
+Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen und jeweils aktuell geltenden Maßnahmen bieten wir vereinzelt Veranstaltungen an.
 
-Stand: 18. Februar 2022
+Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
+
+Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten an der Cuxhavener Straße 400. Zur offiziellen Eröffnung finden Sie an dieser Stelle bald mehr.
+
+
+Stand: 1. September 2022
 
 
 * * *
+
+
 ## **2022**
+
+Bereits stattgefunden hat:
 
 ## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch (Sonntag, 20. Februar 2022, 15:30 Uhr im JoLa, Am Johannisland 2)
 
@@ -33,16 +42,13 @@ Für den Impulsvortrag konnten wir Holger Maciolek vom "Aktionsbündnis Alte Sü
 Bitte melden Sie sich zu dieser Veranstaltung telefonisch im Kulturhaus (Tel. 796 72 22) bzw. per E-Mail unter info@suederelbe-archiv.de an.
 Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihren Identitätsnachweis und Ihr Impf- bzw. Genesenen-Zertifikat mit und halten Sie beides am Eingang bereit. Wir erfassen Ihre Kontaktdaten per LucaApp oder schriftlich mit einem Formular, das nach 14 Tagen vernichtet wird.
 
-## **Die Veranstaltung ist ausgebucht! (16.2.2022)**
-
+## **Die Veranstaltung war schnell ausgebucht (16.2.2022) und fand großen Zuspruch.**
 
 
 * * *
 
 
 ## Stadtteilrundgänge und Gedenken an den Stolpersteinen
-
-
 
 
 Zu unserem bereits bewährten 
@@ -54,15 +60,13 @@ Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Perso
 An dieser Stelle können Sie sich darüber informieren.
 
 
-Ob Heiner Schultz seinen traditionellen
+Heiner Schultz hat seinen traditionellen
 
 **Gedenkgang über das Gelände des ehemaligen Außenlagers des KZ Neuengamme am Falkenbergsweg in Neugraben**
 
-am 15. April 2022 (in diesem Jahr der Karfreitag) durchführen wird, steht zur Zeit (Stand 20.2.2022) noch nicht fest, ist zeitlich gerade in Abstimmung.
+am 15. April 2022 (in diesem Jahr der Karfreitag) nicht öffentlich durchgeführt. Statt dessen fand ein Gedenken in kleinem Kreis vor Ort statt.
 
-Der Gedenkgang konnte 2020 und 2021 nicht stattfinden. Statt dessen hatte Heiner Schultz 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg veröffentlicht wurde und den Sie [hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/) abhören können.
-
-Der Link ist noch aktiv, hören Sie gern einmal hinein!
+Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz hat 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg hinterlegt ist ([hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/).
 
 
 * * *
@@ -73,8 +77,6 @@ Der Link ist noch aktiv, hören Sie gern einmal hinein!
 Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen.
 
 Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
-
-**Im Rahmen der Kulturtage Süderelbe 2021 bieten wir am Samstag, 6. November von 10:00 bis 12:00 Uhr vor Ort in der Bücherhalle Neugraben erstmalig wieder den Offenen Treffpunkt an - unter den dann in Hamburg geltenden Maßnahmen zur Eindämmung des Coronavirus.**
 
 
 * * *
@@ -97,13 +99,15 @@ Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Brie
 
 Wir freuen uns auf Ihre Anregungen und Beiträge. Nehmen Sie gern per E-Mail Kontakt mit uns auf.
 
+Diese Veranstaltung hat stattgefunden (s. oben).
 
 
 
 
-## *Vorschau auf 2021 und 2022*
 
-Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen, da wir diese nur in Abhängigkeit von den behördlichen Vorgaben und Auflagen und des Infektionsgeschehens im Laufe des Jahres 2021 planen können.
+## *Vorschau auf weitere Themenabende*
+
+Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen:
 
 ## **Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg**
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -153,6 +157,6 @@ Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
 
 ## Dia-Schau in der Bücherhalle Neugraben
 
-In der Archiv-Ecke der Bücherhalle laufen auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe.
+In der Archiv-Ecke der Bücherhalle laufen von Zeit zu Zeit auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe.
  Die Öffnungszeiten der Bücherhalle finden Sie
 [hier](https://www.buecherhallen.de/neugraben).
