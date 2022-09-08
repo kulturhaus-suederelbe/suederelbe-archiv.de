@@ -135,8 +135,7 @@ Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Ho
 
 Wir sammeln und archivieren historische Fotos, Karten, Bücher, Zeitungen
 und Berichte von Zeitzeugen aus den Ortsteilen Altenwerder, Cranz,
-Hausbruch, Francop, Neuenfelde, Neugraben-Fischbek und Moorburg des
-Süderelbegebietes.
+Hausbruch, Fischbek, Francop, Moorburg, Neuenfelde und Neugraben.
 
 Kennen Sie Zeitzeugen (oder sind Sie selbst Zeitzeuge oder Zeitzeugin) die für die
 Aufzeichnung von Gesprächen zur regionalen Geschichte der Süderelberegion zur Verfügung 
