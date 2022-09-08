@@ -159,4 +159,4 @@ Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
 
 In der Archiv-Ecke der Bücherhalle laufen von Zeit zu Zeit auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe.
  Die Öffnungszeiten der Bücherhalle finden Sie
-[hier](https://www.buecherhallen.de/neugraben).
+[hier](https://www.buecherhallen.de/neugraben.html).
