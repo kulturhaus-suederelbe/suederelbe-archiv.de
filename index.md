@@ -66,7 +66,7 @@ Auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Best�
 
 * * *
 
-## **Themenabende und Themennachmittage 2021 und 2022**
+## **Veranstaltungen zu diversen Themen 2020 bis 2022**
 
 Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen für einen begrenzten Teilnehmerkreis unter Einhaltung der geltenden Hygienemaßnahmen anbieten. Geplant waren für November 2020 weitere Termine. Der Vortrag von Anna Hájková wurde dann nur digital per Zoom-Videokonferenz abgehalten. Zu dieser Veranstaltung lesen Sie bitte unsere Rubrik "Veranstaltungsarchiv".
 
@@ -78,16 +78,7 @@ Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen fü
 
  
 ## **Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962**
-An diese Naturkatastrophe, die die Menschen in unserer Region 17 Jahre nach dem Ende des Zweiten Weltkriegs unvermittelt traf, möchten wir erinnern.
-
-Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell dauerhaft zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
-
-Wir freuen uns auf Ihre Anregungen und Beiträge. Nehmen Sie gern per E-Mail Kontakt mit uns auf.
-
-Diese Veranstaltung hat stattgefunden (s. oben).
-
-
-
+Mehr zu Veranstaltungen zum Thema finden Sie jetzt imtzt im Veranstaltungsarchiv.
 
 
 ## *Vorschau auf weitere Veranstaltungen mit Themenschwerpunkten*
