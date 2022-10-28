@@ -3,7 +3,7 @@
 
 2022
 
-20. Februar 2022 um 15:30 Uhr:
+Am 20. Februar 2022 um 15:30 Uhr:
 
 ## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch (Sonntag, 20. Februar 2022, 15:30 Uhr im JoLa, Am Johannisland 2)
 
@@ -19,6 +19,14 @@ Für Ihren Besuch gilt die Hamburger "2G-Plus-Regel", d.h. bringen Sie bitte Ihr
 
 ## **Die Veranstaltung war schnell ausgebucht (16.2.2022) und fand großen Zuspruch.**
 
+
+An diese Naturkatastrophe, die die Menschen in unserer Region 17 Jahre nach dem Ende des Zweiten Weltkriegs unvermittelt traf, möchten wir erinnern.
+
+Aus diesem Anlass rufen wir auf, uns Erinnerungsstücke (Photos, Dokumente, Briefe, Tagebucheintragungen usw.), die sich mit dem Thema befassen, zu nennen und eventuell dauerhaft zu überlassen. Wenn Sie uns mündlich Ihre Erinnerungen mitteilen möchten, verabreden wir gern die Aufzeichnung Ihres Zeitzeug:innen-Beitrages.
+
+Wir freuen uns auf Ihre Anregungen und Beiträge. Nehmen Sie gern per E-Mail Kontakt mit uns auf.
+
+Diese Veranstaltung hat stattgefunden (s. oben).
 
 
 
