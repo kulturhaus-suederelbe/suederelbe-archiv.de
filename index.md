@@ -17,10 +17,10 @@ Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behö
 
 Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
 
-Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten an der Cuxhavener Straße 400. Zur offiziellen Eröffnung finden Sie an dieser Stelle bald mehr.
+Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten in der wiedererrichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
-Stand: 1. September 2022
+Stand: 27. Oktober 2022
 
 
 * * *
@@ -55,9 +55,9 @@ Zu unserem bereits bewährten
 
 **Rundgang durch den Dorfkern Neugrabens**
 
-werden wir wieder einladen, wenn eine sinnvolle und sichere Durchführung möglich ist.
+werden wir ab 2023 wieder einladen, sobald eine sinnvolle und sichere Durchführung möglich ist.
 Wir werden ihn dann für voraussichtlich eine Teilnehmerzahl von etwa zehn Personen anbieten können.
-An dieser Stelle können Sie sich darüber informieren.
+An dieser Stelle finden Sie bald weiteres.
 
 
 Heiner Schultz hat seinen traditionellen
@@ -74,9 +74,9 @@ Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz 
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen.
+Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen. Auch eine selbständige Recherche vor Ort in der Bücherhalle ist aktuell wieder möglich.
 
-Ebenfalls auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
+Auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
 
 
 * * *
@@ -89,7 +89,7 @@ Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen fü
 ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      ******      
 
 
-## *Vorschau auf 2022*
+## *Vorschau auf 2022 und 2023*
 
  
 ## **Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962**
@@ -105,9 +105,9 @@ Diese Veranstaltung hat stattgefunden (s. oben).
 
 
 
-## *Vorschau auf weitere Themenabende*
+## *Vorschau auf weitere Veranstaltungen mit Themenschwerpunkten*
 
-Wir können leider noch keine konkreten Daten für die folgenden Themenabende nennen:
+Wir können leider noch keine konkreten Daten für die folgenden Themen nennen:
 
 ## **Der Harburger Blutmontag 1920. Widerstand gegen den Kapp-Putsch in Hamburg**
 1919/1920 kämpfte die neue, sozialdemokratisch geführte deutsche Reichsregierung mit den Folgen des Ersten Weltkriegs. Sie bekam dabei nur die Unterstützung eines Teils der deutschen Gesellschaft, denn es gab immer noch große Gruppen, alte Eliten, die den Idealen einer Standesgesellschaft, einer Monarchie oder gar Militärdiktatur anhingen. Diese Gruppen scheuten auch vor Umsturzversuchen wie dem Kapp-Putsch nicht zurück.
@@ -120,14 +120,14 @@ Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet werden.
 
 
 
-## Themenabend "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
+## Veranstaltung zu "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen. 
 
 
 
 * * *
 
-**Der Eintritt zu unseren Themenabenden ist frei, Spenden für unsere Arbeit sind uns willkommen.**
+**Der Eintritt zu unseren Veranstaltungen ist generell frei, Spenden für unsere Arbeit nehmen wir gern entgegen.**
 
 * * *
 
