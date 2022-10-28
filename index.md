@@ -78,7 +78,7 @@ Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen fü
 
  
 ## **Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962**
-Mehr zu Veranstaltungen zum Thema finden Sie jetzt imtzt im Veranstaltungsarchiv.
+Mehr zu Veranstaltungen zum Thema finden Sie jetzt im Veranstaltungsarchiv.
 
 
 ## *Vorschau auf weitere Veranstaltungen mit Themenschwerpunkten*
