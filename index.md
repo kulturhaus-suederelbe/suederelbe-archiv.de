@@ -6,7 +6,7 @@ title: Aktuell
 
 Herzlich willkommen auf unseren Seiten! 
 
-Für Fragen und Anregungen erreichen Sie uns unter der E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de).
+Für Fragen und Anregungen erreichen Sie uns unter der E-Mail-Adresse [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) und unter [info@geschichtswerkstatt-süderelbe.de](mailto:info@geschichtswerkstatt-süderelbe.de).
 
 Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie per E-Mail erreichbar und unterstützen Sie bei Recherchen und Fragen. Wir leiten Ihr Anliegen auch gern an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken weiter.
 
@@ -20,7 +20,7 @@ Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bez
 Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten in der wiedererrichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
-Stand: 27. Oktober 2022
+Stand: 19. November 2022
 
 
 * * *
@@ -92,12 +92,13 @@ Am 15. März 1920 kam es in diesem Zusammenhang in Harburg zu einer blutigen Aus
 
 Die Nationalsozialisten nutzten nach 1933 den Tod des beim Harburger Konflikt umgekommenen Anführers der Aufständischen, Hauptmann Rudolf Bertold, eines Fliegerhelden des Ersten Weltkriegs, und stilisierten ihn in jährlichen Trauerfeiern - die bis zum Ende des Zweiten Weltkriegs anhielten, zum Märtyrer des demokratiefeindlichen Umsturzversuchs.
 
-Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet werden. 
+Der Vortrag wird von Ines Sulzbacher und Gerhard Weiss gestaltet. 
 
 
 
 ## Veranstaltung zu "Leben und Arbeiten der Frauen im niedersächsischen Fachwerkhaus - im 19. und in der ersten Hälfte des 20. Jahrhunderts"
 Die Referentin, **Frau Dr. Inge Buggenthin, Volkskundlerin und Pädagogin aus Hollenstedt**, wird die oft mühselige Arbeit der Frauen im von Handarbeit geprägten bäuerlichen und landhandwerklichen Alltag veranschaulichen. 
+Zu diesem Vortrag werden wir nach Möglichkeit 2023 einladen.
 
 
 
