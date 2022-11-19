@@ -2,7 +2,7 @@
 title: Aktuell
 ---
 
-# Aktuelles aus dem Süderelbe-Archiv - der Geschichtswerkstatt für die Region Süderelbe
+# Aktuelles aus der Geschichtswerkstatt Süderelbe (Süderelbe-Archiv) - der Geschichtswerkstatt für die Region Süderelbe 
 
 Herzlich willkommen auf unseren Seiten! 
 
@@ -17,7 +17,7 @@ Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behö
 
 Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
 
-Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten in der wiedererrichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
+Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
 Stand: 19. November 2022
