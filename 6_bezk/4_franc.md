@@ -10,7 +10,7 @@ Wilhelm Mohr, *750 Jahre Francop 1235 - 1985. Ein Altländer Dorf im Stadtstaat 
 
 Wilhelm Mohr (1912-2000), der lange Jahre als Vorsitzender für den Heimatverein Francop e.V. aktiv war, gab die vorstehenden Bände für den Verein heraus. Beide Bände sind in unserem Archiv vorhanden.
 
-Baufibel Altes Land - [https://www.elbberg.de/fileadmin/user_upload/projekte/baufibel_altes_land/baufibel_altes_land_druck_2011-07-14.pdf](hier)
+Francop, Neuenfelde und Cranz in der [Baufibel Altes Land](https://www.elbberg.de/fileadmin/user_upload/projekte/baufibel_altes_land/baufibel_altes_land_druck_2011-07-14.pdf)
 
 
 ## Weblinks zu Francop
