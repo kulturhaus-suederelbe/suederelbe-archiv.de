@@ -3,6 +3,9 @@
 
 2022
 
+Am 3. November 2022 stellten - im Rahmen der Gedenktage Harburg 2022 - Schülerinnen und Schüler des Profils "Kultur und Sprache" vom Gymnasium Süderelbe und weiteren Schulen im JoLa im BGZ ihr Projekt zum Lagerkomplex am Falkenbergsweg vor. Wechselnde Gruppen der Oberstufe hatten in den vergangenen Jahren dafür gesorgt, dass Wikipedia-Artikel erstellt, eine Erinnerungsstele aufgestellt sowie Hinweisschilder auf das Außenlager angebracht wurden. Die Arbeit wird fortgeführt.
+
+
 Am 20. Februar 2022 um 15:30 Uhr:
 
 ## **Vor 60 Jahren – die große Sturmflut vom Februar 1962 und ihre Auswirkungen in Süderelbe** | Ausstellung und Gedenkveranstaltung mit Vortrag und Austausch (Sonntag, 20. Februar 2022, 15:30 Uhr im JoLa, Am Johannisland 2)
