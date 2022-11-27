@@ -21,7 +21,7 @@ Vereinsregister
 
 Vertretungsberechtigt
 :   Hannelore Bobeck-Niculescu,
-:   Ines Sulzbacher (interim)
+:   Ines Sulzbacher (kommissarisch)
 
 Steuernummer
 :   17/432/05266
