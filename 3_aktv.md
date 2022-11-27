@@ -1,12 +1,12 @@
 # Aktivitäten
 
-In der Geschichtswerkstatt Süderelbe (Süderelbe-Archiv) arbeiten etwa 15 Ehrenamtliche an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Themen.
+In der Geschichtswerkstatt Süderelbe (dem ehemaligen Süderelbe-Archiv) arbeiten etwa 12 Ehrenamtliche an unterschiedlichen Themen. Sie treffen sich regelmäßig zu Arbeitsgruppentreffen sowie in kleineren Zusammensetzungen zu besonderen Projekten.
 
 Einmal im Monat steht das Archiv im Rahmen eines Offenen Treffpunkts (zurzeit ausgesetzt, Stand November 2022) allen Interessierten für Auskünfte und eigene Beiträge offen, darüber hinaus sind nach Absprache auch Einzeltermine zu anderen Zeiten möglich. Zu regional- und lokalgeschichtlich interessanten Themen veranstalten wir Themenabende, die in der Bücherhalle oder im BGZ Süderelbe ausgerichtet werden. Vortragende aus den eigenen Reihen oder, auf Einladung, externe Referentinnen und Referenten aus Wissenschaft und Kultur vertiefen die jeweiligen Themen.
 
 ## Arbeitsgruppe
 
-Eine Gruppe geschichtlich Interessierter trifft sich einmal im Monat am jeweils zweiten Donnerstag um 18:30 Uhr, zurzeit im Kulturhaus Süderelbe, Am Johannisland 2, JoLa-Raum im Erdgeschoss, zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an Lokal- und Regionalgeschichte Interessierten.
+Eine Gruppe geschichtlich Interessierter trifft sich einmal im Monat am jeweils zweiten Donnerstag um 18:30 Uhr, zurzeit im Kulturhaus Süderelbe, Am Johannisland 2, JoLa-Raum im Erdgeschoss, zu einem Arbeitstreffen, um sich zu relevanten Themen auszutauschen und Aktivitäten zu besprechen, planen und umzusetzen. Die Geschichtsgruppe ist offen für alle an der Lokal- und Regionalgeschichte unserer Region Interessierten.
 
 **Bitte beachten Sie die jeweils geltenden Regeln in der anhaltenden Covid-19-Pandemie. Stand: November 2022).**
 
