@@ -20,7 +20,7 @@ Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bez
 Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
-Stand: 19. November 2022
+Stand: 14. Dezember 2022
 
 
 * * *
