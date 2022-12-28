@@ -24,3 +24,5 @@ Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenomme
 
 Dann senden Sie uns bitte ein E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) oder info@geschichtswerkstatt-süderelbe.de. Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten. Bitte teilen Sie uns dies per E-Mail mit.
 
+
+
