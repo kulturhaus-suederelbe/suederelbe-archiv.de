@@ -18,7 +18,9 @@ Unsere Themenabende sind ein besonderes Angebot für historisch interessierte B�
 Themenabende sind weitgehend als Photo- und Audiodateien im Archiv verfügbar. Zu den Themenabenden laden wir mit Plakaten, auf unserer Website, in der Lokalpresse sowie über einen E-Mail-Verteiler ein.
 
 
-## Fragen zum Mitmachen
+## Fragen zum Teilnehmen und Mitmachen
 
-Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden? Dann senden Sie uns bitte ein E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) oder info@geschichtswerkstatt-süderelbe.de. Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten. Bitte teilen Sie uns dies per E-Mail mit.
+Haben Sie Fragen an uns oder möchten sie in unseren E-Mail-Verteiler aufgenommen werden? Haben Sie Interesse an einer Mitarbeit oder möchten Sie einmal unverbindlich an einem Arbeitstreffen teilnehmen?
+
+Dann senden Sie uns bitte ein E-Mail an [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) oder info@geschichtswerkstatt-süderelbe.de. Zusendungen über den E-Mail-Verteiler werden als Blindkopien ("bcc") versandt. Gleiches gilt, wenn Sie aus dem E-Mail-Verteiler herausgenommen werden möchten. Bitte teilen Sie uns dies per E-Mail mit.
 
