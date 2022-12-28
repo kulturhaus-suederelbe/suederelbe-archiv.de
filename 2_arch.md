@@ -12,13 +12,11 @@ bis Neugraben eingeweiht und der Bahnhof veränderte sein Aussehen.
 
 ## Unser Standort
 
-Die Sammlung des Süderelbe-Archivs befindet sich in der Bücherhalle Neugraben, Am Neugrabener Markt 7.
-Dort sind in den Schränken der Archivecke Bücher, Dokumente, Karten, Fotos, Bild- und Tonträger sowie einige Gegenstände weitgehend systematisch geordnet.
-Zu den [Öffnungszeiten der Bücherhalle](https://www.buecherhallen.de/neugraben) können alle Materialien eingesehen werden. Eine Kopiermöglichkeit ist vorhanden.
+Die Sammlung des Süderelbe-Archivs befand sich bis Oktober 2022 in der Bücherhalle Neugraben, Am Neugrabener Markt 7.
+Zurzeit wird sie im neuen Standort in der Alten Schule Fischbek an der Cuxhavener Straße 400 wieder aufgebaut. Die Zugänglichkeit ist daher im Moment eingeschränkt.
 
-![](/img/Buecherhalle_Neugraben_1.png)
-![](/img/Archivecke.png)  
-Bücherhalle Neugraben mit Archivecke
+In unserem Bestand sind Bücher, Dokumente, Karten, Photos, Bild- und Tonträger sowie einige Gegenstände weitgehend systematisch geordnet.
+
 
 ## Kontakt
 
@@ -26,7 +24,7 @@ Haben Sie Fragen? Dann senden Sie uns bitte ein E-Mail an [info@suederelbe-archi
 
 ## Organisatorisches
 
-Die Geschichtswerkstatt Süderelbe-Archiv ist eine Kooperation des Kulturhaus-Süderelbe e.V. und der Bücherhalle Neugraben.
+Die Geschichtswerkstatt Süderelbe (mit Süderelbe-Archiv) ist eine Kooperation des Kulturhaus-Süderelbe e.V. und der Bücherhalle Neugraben.
 
 ## Hamburger Geschichtswerkstätten
 
