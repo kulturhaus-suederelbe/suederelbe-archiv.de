@@ -2,7 +2,7 @@
 title: Aktuell
 ---
 
-# Aktuelles aus der Geschichtswerkstatt Süderelbe (Süderelbe-Archiv) - der Geschichtswerkstatt für die Region Süderelbe 
+# Die Geschichtswerkstatt Süderelbe (mit Süderelbe-Archiv) stellt sich vor: 
 
 Herzlich willkommen auf unseren Seiten! 
 
@@ -20,7 +20,7 @@ Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bez
 Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
-Stand: 14. Dezember 2022
+Stand: 28. Dezember 2022
 
 
 * * *
@@ -130,9 +130,3 @@ Kontaktieren Sie uns gern per [E-Mail](mailto:info@suederelbe-archiv.de)
 und machen Sie einen Termin aus - oder kommen Sie zu unseren Offenen
 Treffpunkten! Wir freuen uns auf *Ihre* Geschichte.
 
-
-## Dia-Schau in der Bücherhalle Neugraben
-
-In der Archiv-Ecke der Bücherhalle laufen von Zeit zu Zeit auf dem digitalen Bilderrahmen Präsentationen zur Geschichte der Region Süderelbe.
- Die Öffnungszeiten der Bücherhalle finden Sie
-[hier](https://www.buecherhallen.de/neugraben.html).
