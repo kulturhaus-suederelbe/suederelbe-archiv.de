@@ -59,10 +59,7 @@ Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz 
 
 ## Offener Treffpunkt (in der Bücherhalle Neugraben)
 
-Bis auf Weiteres ausgesetzt - wir sind per E-Mail erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen. Auch eine selbständige Recherche vor Ort in der Bücherhalle ist aktuell wieder möglich.
-
-Auf Anfrage geben die Mitglieder der Geschichtsgruppe gern Auskunft zu den Beständen und unterstützen Interessierte bei Recherche-Anfragen.
-
+Der Offene Treffpunkt ist bis auf Weiteres ausgesetzt. Wir sind per E-Mail (u.U. auch telefonisch über das Kulturhaus) erreichbar und können auf Anfrage das Archiv in Einzelterminen zugänglich machen bzw. Rechercheauskünfte ausgeben. Eine selbständige Recherche vor Ort in der Bücherhalle ist aktuell nicht mehr möglich, da unsere Bestände umgezogen wurden.
 
 * * *
 
@@ -78,7 +75,7 @@ Ab Oktober 2020 konnten wir - vorübergehend - wieder einige Veranstaltungen fü
 
  
 ## **Vor 60 Jahren - die Sturmflut vom 16./17. Februar 1962**
-Mehr zu Veranstaltungen zum Thema finden Sie jetzt im Veranstaltungsarchiv.
+Mehr zu unseren Veranstaltungen zu diesem Thema finden Sie jetzt im Veranstaltungsarchiv.
 
 
 ## *Vorschau auf weitere Veranstaltungen mit Themenschwerpunkten*
