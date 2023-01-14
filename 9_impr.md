@@ -9,7 +9,7 @@ Webseite
 :   Joachim Löffler
 :   Katrin Ehlberg
 
-Das Süderelbe-Archiv ist eine Arbeitsgruppe vom
+Das Süderelbe-Archiv ist eine Arbeitsgruppe des
 
 Kulturhaus Süderelbe e.V.  
 Am Johannisland 2  
