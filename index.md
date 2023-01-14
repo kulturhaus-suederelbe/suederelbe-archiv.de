@@ -14,13 +14,14 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 * * *
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen und jeweils aktuell geltenden Maßnahmen bieten wir vereinzelt Veranstaltungen an.
+Wir empfehlen weiterhin die sog. AHA-L-Regeln (Abstand halten: 1,5-2 m, Hygiene: häufiges Händewaschen, Nies- und Husthygiene, Alltagsmaske (insbesondere dort, wo Abstände sich nicht/schwer einhalten lassen), Lüften: an den Raum angepasstes ausreichendes Lüften). Das Infektionsschutzgesetz bezüglich Covid-19 läuft am 7.4.2023 bundesweit aus.
 
 Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
 
 Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
 
 
-Stand: 28. Dezember 2022
+Stand: 13. Januar 2023
 
 
 * * *
