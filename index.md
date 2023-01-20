@@ -14,14 +14,19 @@ Wir sind auch während der anhaltenden Covid-19/Coronavirus-Pandemie für Sie pe
 * * *
 
 Aufgrund der Covid-19/Coronavirus-Pandemie und der Allgemeinverfügung der Behörde für Gesundheit und Verbraucherschutz in Hamburg zu ihrer Eindämmung vom 15. März 2020 sowie der zurzeit weiter bestehenden Einschränkungen und jeweils aktuell geltenden Maßnahmen bieten wir vereinzelt Veranstaltungen an.
-Wir empfehlen weiterhin die sog. AHA-L-Regeln (Abstand halten: 1,5-2 m, Hygiene: häufiges Händewaschen, Nies- und Husthygiene, Alltagsmaske (insbesondere dort, wo Abstände sich nicht/schwer einhalten lassen), Lüften: an den Raum angepasstes ausreichendes Lüften). Das Infektionsschutzgesetz bezüglich Covid-19 läuft am 7.4.2023 bundesweit aus.
-
-Wir sind derzeit mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
-
-Daneben freuen wir uns auf den bevorstehenden Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
+Wir empfehlen weiterhin die sog. AHA+L-Regeln: Abstand von Mitmenschen halten (1,5-2 m), Handhygiene: häufiges Händewaschen, Nies- und Husthygiene, Tragen einer Alltagsmaske (insbesondere dort, wo Abstände sich nicht oder nur schwer einhalten lassen) sowie an den Raum angepasstes, ausreichendes Lüften.
+Das Infektionsschutzgesetz bezüglich Covid-19 läuft am 7.4.2023 bundesweit aus. Aktuell grassieren noch RS-Viren und Grippeviren.
 
 
-Stand: 13. Januar 2023
+Wir sind mit der Vorbereitung weiterer Veranstaltungen zu Themen mit Bezug zur Geschichte der Region Süderelbe beschäftigt.
+
+Wir freuen uns über den Bezug unserer neuen Räumlichkeiten im Obergeschoss der wieder errichteten Alten Schule Fischbek an der Cuxhavener Straße 400. 
+
+Zur offiziellen Eröffnung im Frühjahr 2023 finden Sie an dieser Stelle bald mehr.
+
+
+
+Stand: 20. Januar 2023
 
 
 * * *
@@ -52,7 +57,7 @@ Heiner Schultz hat seinen traditionellen
 
 am 15. April 2022 (in diesem Jahr der Karfreitag) nicht öffentlich durchgeführt. Statt dessen fand ein Gedenken in kleinem Kreis vor Ort statt.
 
-Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz hat 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg hinterlegt ist ([hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/).
+Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz hat 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg hinterlegt ist ([hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/)).
 
 
 * * *
