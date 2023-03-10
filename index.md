@@ -27,14 +27,19 @@ Wir freuen uns über den Bezug unserer neuen Räumlichkeiten im Obergeschoss der
 
 
 
-Stand: 20. Januar 2023
+Stand: 10. März 2023
 
 
 * * *
 
 
-## **2022**
+## **2023**
 
+Am Donnerstag, 11. Mai 2023 findet um 18:00 Uhr in der St.-Gertrud-Kirche in Altenwerder ein Vortrag zur Geschichte der Köhlbrand-Werft Paul Berendsohns statt. 
+
+
+
+Der Eintritt ist frei, Spenden sind willkommen.
 
 
 * * *
