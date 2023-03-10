@@ -40,6 +40,10 @@ Am Donnerstag, 11. Mai 2023 findet um 18:00 Uhr in der St.-Gertrud-Kirche in Alt
 ![2023_01_27_dl_Paul Berendsohn 1955](https://user-images.githubusercontent.com/31505945/224279105-fc7035f3-08e7-48c0-892d-e134f78c9003.jpg)
 
 
+Das Photo zeigt Paul Berendsohn 1955. Er lebte wieder in Altenwerder und ihm war nach einem langwierigen Verfahren mit der Stadt Hamburg seine Werft wieder übertragen worden. Paul Berendsohn starb 1959.
+
+![image](https://user-images.githubusercontent.com/31505945/224282652-ebc1c62a-f823-4f36-ad08-a43698d10b97.png)
+
 
 Der Eintritt ist frei, Spenden sind willkommen.
 
