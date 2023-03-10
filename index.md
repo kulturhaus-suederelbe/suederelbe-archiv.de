@@ -37,6 +37,12 @@ Stand: 10. März 2023
 
 Am Donnerstag, 11. Mai 2023 findet um 18:00 Uhr in der St.-Gertrud-Kirche in Altenwerder ein Vortrag zur Geschichte der Köhlbrand-Werft Paul Berendsohns statt. 
 
+![image](https://user-images.githubusercontent.com/31505945/224285268-df5a1001-8bbe-4afc-a79a-bca918a380d1.png)
+
+![image](https://user-images.githubusercontent.com/31505945/224285468-0e2bbb50-6bbf-406d-a12b-817bac2d730a.png)
+
+
+
 ![image](https://user-images.githubusercontent.com/31505945/224283154-5d76e8d6-c817-44fe-9015-b2dcdee28af1.png)
 
 
