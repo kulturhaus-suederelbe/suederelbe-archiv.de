@@ -1,14 +1,14 @@
 # Altenwerder
 
-Altenwerder (ndd. *Oolwarder*) - von dem ehemaligen Bauern- und Fischerdorf existieren heute nur noch die der Heiligen Gertrud von Nivelles geweihte Kirche mit dem angegliederten Kirchhof sowie Reste der Straßen Altenwerder Kirchweg, Altenwerder Querweg, Kirchdorfweg und Altenwerder Süderdeich in einem Grünstreifen unmittelbar um die Kirche herum. Zur Kirche führt heute (2018) die neu angelegte Straße Im Altenwerder Kirchtal.
+Altenwerder (ndd. *Oolwarder*) - von dem ehemaligen Bauern- und Fischerdorf existieren heute nur noch die der Heiligen Gertrud von Nivelles geweihte Kirche mit dem angegliederten Kirchhof sowie Reste der Straßen Altenwerder Kirchweg, Altenwerder Querweg, Kirchdorfweg und Altenwerder Süderdeich in einem Grünstreifen unmittelbar um die Kirche herum. Zur Kirche führt heute (2023) die neu angelegte Straße Im Altenwerder Kirchtal.
 
 Ein weiteres Relikt des Dorfes sind Mobiliar und Inhalt des Einzelhandelsgeschäftes von Magdalene Dufke geb. Rübke. Der Laden wurde in seinem damaligen Zustand 1978 vom Altonaer Museum erworben und inventarisiert. Seit 1991 wird er als "Dufke-Laden" in der Dauerausstellung des Museums präsentiert (s. Links weiter unten).
 
-Zur Geschichte Altenwerders stehen im Archiv folgende Titel zur Verfügung (eine Auswahl):
+Zur Geschichte Altenwerders stehen in unserer Bibliothek folgende Titel zur Verfügung (eine Auswahl):
 
 Theodor Benecke (1919), *Geschichtliche Nachrichten über Moorburg, Finkenwärder, Altenwerder, Lauenbruch usw.*
 
-Broockmann/Zapf (1996), *Süderelbe. Region der Gegensätze*, 1986.
+Broockmann/Zapf (1996), *Süderelbe. Region der Gegensätze*, 1986 (Kapitel zu Altenwerder).
 
 Eberhard Postel (1995), *Landarzt in Altenwerder. Erinnerungen*.
 
@@ -25,9 +25,6 @@ Torkild Hinrichsen, *Dufke-Laden. Ein ländliches Gemischtwarengeschäft aus Alt
 [Stiftung Ausgleich Altenwerder](http://stiftung-ausgleich-altenwerder.de) (Link hinzugefügt am 22.3.2018)
 
 [Altenwerder Kirche](http://kirchesuederelbe.de/altenwerder) (Link hinzugefügt am 22.3.2018)
-
-NDR 2011 - Das verschwundene Dorf 
-[NDR-Bericht mit Film](https://www.ndr.de/kultur/geschichte/schauplaetze/Das-verschwundene-Dorf,altenwerder101.html) (Link hinzugefügt am 22.3.2018)
 
 ZDF Dokukanal 2006 - Altenwerder. Ein Dorf verschwindet (ab 5 min 9 sec)
 u.a. Interviews mit Elisabeth Schwartau, Christel Wulf und Hans Meyer jun.
