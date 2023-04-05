@@ -33,7 +33,7 @@ u.a. Interviews mit Elisabeth Schwartau, Christel Wulf und Hans Meyer jun.
 [Altenwerder Sportverein - Geschichte Verein und Dorf](http://ftsv-altenwerder.de/index.php/verein2/geschichte/2015-01-18-20-51-59)
 Web-Auftritt des FTSV Altenwerder mit Texten, Abbildungen und Photos zur älteren und jüngeren Geschichte Altenwerders. (Link hinzugefügt am 22.3.2018)
 
-[Der Dufke-Laden](https://shmh.de/de/der-dufke-laden) - Deutsch / [The Dufke shop](https://www.altonaermuseum.de/en/exhibitions/the-dufke-shop.htm) - Englisch (Links hinzugefügt am 10.6.2018; erster Link wurde am 4.4.2019 aktualisiert, zweiter Link inzwischen leider unzugänglich.)
+[Der Dufke-Laden](https://shmh.de/ausstellungen/dufke-laden/) (Link aktualisiert am 16.3.2023)
 
 [Das verschwundene Dorf](https://www.ndr.de/kultur/geschichte/schauplaetze/Das-verschwundene-Dorf,altenwerder101.html) NDR-Bericht vom Februar 2011 (Link hinzugefügt am 5.11.2018).
 
