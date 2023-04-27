@@ -6,9 +6,9 @@ title: Aktuell
 
 Wir freuen uns über den Bezug unserer neuen Räumlichkeiten im Obergeschoss der Alten Schule Fischbek an der Cuxhavener Straße 400. 
 
-Die offizielle Eröffnung unserer neuen Räume fand am Sonntag, dem 23. April 2023 statt.
+Die offizielle Eröffnung fand am Sonntag, dem 23. April 2023 statt.
 
-In diesem Zusammenhang veröffentlichen wir ebenfalls eine neue Website, die Sie unter
+In diesem Zusammenhang haben wir eine neue Website eingerichtet, die Sie unter
 
 # www.geschichtswerkstatt-suederelbe.de 
 
