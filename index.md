@@ -74,6 +74,9 @@ am 15. April 2022 (in diesem Jahr der Karfreitag) nicht öffentlich durchgeführ
 
 Der Gedenkgang konnte 2020 und 2021 ebenfalls nicht stattfinden. Heiner Schultz hat 2020 einen Text eingesprochen, der auf der Website der SPD-Fraktion Harburg hinterlegt ist ([hier](http://stage.spd-fraktion-harburg.de/2020/04/15/das-kz-vor-der-haustuer-gedenken-an-die-befreiung-15-april-2020/)).
 
+Am Sonnabend, 15. April 2023, fand erstmals seit Beginn der Corona-Pandemie wieder ein öffentliches Gedenken an den Stolpersteinen im Falkenbergsweg statt.
+Im Anschluss führte Gunter Buck über das Gelände des ehemaligen Außenlagers zum Gedenkstein.
+
 
 * * *
 
