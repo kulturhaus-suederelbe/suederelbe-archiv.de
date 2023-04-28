@@ -10,7 +10,7 @@ Die offizielle Eröffnung fand am Sonntag, dem 23. April 2023 statt.
 
 In diesem Zusammenhang haben wir eine neue Website eingerichtet, die Sie unter
 
-# www.geschichtswerkstatt-suederelbe.de 
+# [www.geschichtswerkstatt-suederelbe.de](https://www.geschichtswerkstatt-suederelbe.de),
 
 erreichen können.
 
