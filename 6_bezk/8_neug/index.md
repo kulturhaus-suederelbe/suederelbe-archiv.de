@@ -14,7 +14,7 @@ Am 21. Oktober 2016 fand eine Lesung von Auszügen aus dem Buch mit Uwe Michelau
 
 ![](/img/Buchtitel_klein.png)
 
-500 Jahre Geschichte mit Höhen und Tiefen und mit vielen Geschichten. Das Buch wird von Süderelbe-Archiv herausgegeben. Sie erhalten es zum Preis von EUR 14,90 €. Informationen können Sie erhalten über: [Mail an das Süderelbe-Archiv](mailto:info@suederelbe-archiv.de).
+500 Jahre Geschichte mit Höhen und Tiefen und mit vielen Geschichten. Das Buch wird von Süderelbe-Archiv herausgegeben. Sie erhalten es zum Preis von EUR 20,00. Informationen können Sie erhalten über: [Mail an das Süderelbe-Archiv](mailto:info@suederelbe-archiv.de).
 
 ## Hier eine Leseprobe
 
