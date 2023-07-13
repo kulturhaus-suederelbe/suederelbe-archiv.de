@@ -8,7 +8,7 @@ Neugraben-Jubiläumsbuch - es gibt noch restliche Exemplare!
 In einer Gerichtsakte aus dem Jahr 1553 wird erstmals der Name Gödeke Tiedemann erwähnt. Dieser erklärt darin, dass er seit 37 Jahren in
 Neugraben lebt. Daraus ergibt sich das Jahr 1516 als Beleg für eine dauerhafte Besiedelung im heutigen Neugraben.
 
-**Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016 erschienen. Es ist inzwischen noch über Bobeck Medienmanagement in Hamburg-Neugraben erhältlich. Sichern Sie sich Ihr Exemplar! Das Buch eignet sich auch sehr gut als Geschenk.**
+**Das Buch zum Jubiläum ist am Sonnabend, dem 8. Oktober 2016 erschienen. Es ist inzwischen noch über Bobeck Medienmanagement in Hamburg-Neugraben erhältlich. Auch in unserer Geschichtswerkstatt an der Cuxhavener Straße 400 und im Kulturhaus Süderelbe (Stand Juli 2023) erhalten Sie noch Rest-Exemplare. Sichern Sie sich Ihr Exemplar! (Das Buch eignet sich auch sehr gut als Geschenk.)**
 
 Am 21. Oktober 2016 fand eine Lesung von Auszügen aus dem Buch mit Uwe Michelau, einem der Autoren, im Kulturhaus Süderelbe statt. Am 18. Mai 2017 gab es einen weiteren Vorleseabend mit Ines Sulzbacher - ebenfalls Autorin von Teilen des Buchs - und Uwe Michelau.
 
