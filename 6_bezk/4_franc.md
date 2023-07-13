@@ -1,6 +1,6 @@
 # Francop
 
-Das Deichhufendorf Francop ist von Obstplantagen und inzwischen auch Windkraftanlagen geprägt. Auch eine Hafenschlickdeponie (38 m hoch) als neues Landschaftselement, das sich über den Deich erhebt, gehört inzwischen zum Bild.
+Das Deichhufendorf Francop ist von Obstplantagen und inzwischen auch Windkraftanlagen geprägt. Auch eine Hafenschlickdeponie (38 m hoch - Stand 2018) als neues Landschaftselement, das sich über den Deich erhebt, gehört inzwischen zum Bild.
 
 Literatur zu Francop:
 
