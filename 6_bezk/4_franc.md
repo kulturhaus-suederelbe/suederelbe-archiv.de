@@ -2,6 +2,8 @@
 
 Das Deichhufendorf Francop ist von Obstplantagen und inzwischen auch Windkraftanlagen geprägt. Auch eine Hafenschlickdeponie (38 m hoch - Stand 2018) als neues Landschaftselement, das sich über den Deich erhebt, gehört inzwischen zum Bild.
 
+Francop gehört zur 3. Meile Alten Landes und ist 1937 gemeinsam mit Cranz und Neuenfelde Hamburg angeschlossen worden.
+
 Literatur zu Francop:
 
 Wilhelm Mohr, *Francop und seine Graft im Alten Land 1266 - 1966*, Francop 1966.
