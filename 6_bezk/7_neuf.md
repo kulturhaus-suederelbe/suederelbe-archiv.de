@@ -19,5 +19,6 @@ Gustav Fock (Hg.), *900 Jahre Neuenfelde vormals Hasselwerder*, 1959. (im Archiv
 [Wikipedia](https://de.wikipedia.org/wiki/Hamburg-Neuenfelde) (Link hinzugefügt am 24.6.2018)
 
 [Verein 900 Jahre Neuenfelde e.V.](http://900jahreneuenfelde.de/) (Link hinzugefügt am 24.6.2018)
+Hier ist die Geschichte der Auswanderung einiger Neuenfelder Familien ab der Mitte des 19. Jahrhunderts (über New York nach Minnesota) dokumentiert.
 
 [Kirche St. Pankratius Neuenfelde](https://kirchesuederelbe.de/neuenfelde/) (Link hinzugefügt am 24.6.2018)
