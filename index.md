@@ -4,20 +4,20 @@ title: Aktuell
 
 # Herzlich willkommen auf unseren Seiten! 
 
-Wir freuen uns über unsere neuen Räumlichkeiten im Obergeschoss der Alten Schule Fischbek an der Cuxhavener Straße 400. 
+Wir freuen uns über unsere neuen Räume im Obergeschoss der Alten Schule Fischbek an der Cuxhavener Straße 400, die wir im Frühjahr 2023 beziehen konnten. 
 
 Die offizielle Eröffnung fand am Sonntag, dem 23. April 2023 statt.
 
-In diesem Zusammenhang haben wir eine neue Website eingerichtet, die Sie unter
+Aus diesem Anlass haben wir eine neue Website eingerichtet, die Sie unter
 
 # [www.geschichtswerkstatt-suederelbe.de](https://www.geschichtswerkstatt-suederelbe.de)
 
-erreichen können.
+seither erreichen können.
 
-Für Fragen und Anregungen erreichen Sie uns nun unter der E-Mail-Adresse
+Für Fragen und Anregungen kontaktieren Sie uns nun bitte unter der E-Mail-Adresse
 
 # [info@geschichtswerkstatt-suederelbe.de](mailto:info@geschichtswerkstatt-suederelbe.de),
-vorübergehend auch noch (Weiterleitung) über [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de). 
+vorübergehend - bis etwa August 2023 - sind wir auch noch unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) erreichbar. 
  
 Wir unterstützen Sie gern bei Fragen und Recherchen und leiten Ihr Anliegen auf Wunsch an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken weiter.
 
