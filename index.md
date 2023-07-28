@@ -16,8 +16,9 @@ seither erreichen können.
 
 Für Fragen und Anregungen kontaktieren Sie uns nun bitte unter der E-Mail-Adresse
 
-# [info@geschichtswerkstatt-suederelbe.de](mailto:info@geschichtswerkstatt-suederelbe.de),
-vorübergehend - bis etwa August 2023 - sind wir auch noch unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) erreichbar. 
+# [info@geschichtswerkstatt-suederelbe.de](mailto:info@geschichtswerkstatt-suederelbe.de).
+
+Vorübergehend - bis etwa August 2023 - sind wir auch noch unter [info@suederelbe-archiv.de](mailto:info@suederelbe-archiv.de) erreichbar. 
  
 Wir unterstützen Sie gern bei Fragen und Recherchen und leiten Ihr Anliegen auf Wunsch an unsere Kooperationspartner oder an Archive, Museen und Bibliotheken weiter.
 
